@@ -4442,3 +4442,1391 @@ Dunn sekin tik o'tirdi. Ifodasi tantanavor tus oldi, ammo kulrang ko'zlarining t
 Klein hech ikkilanmay javob berdi:
 
 — Ko'ruvchi!
+
+
+# BOB 31: Iksir
+
+Dunn Smit kulrang ko'zlari bilan Kleinga to'la bir daqiqa, bir og'iz so'zsiz tikilib turdi. Klein sukunat va uning nigohi bosimi ostida cho'chimadi. U Dunn bilan ko'z urishtirishda davom etdi.
+
+— Tushunishing kerakki, bir bor iksirni iste'mol qilsang, pushaymonlikka o'rin qolmaydi. — Nihoyat Dunn yana teran, hissiyotsiz ovozda gapirdi.
+
+Klein iljayib dedi:
+
+— Bilaman, ammo men o'zimdagi ovozni hurmat qilaman.
+
+Avvalo, Uyqusiz mening talablarimga mos kelmaydi. Taro klubidan eshitgan ta'rifga ko'ra, Tomoshabin ham xuddi shunday. Boshqa Beyonder yo'llari bilan qachon aloqaga kirishishimni bilmayman. Sekin chora shoshilinch vaziyatda ish bermaydi; shu bois kutishimning hojati yo'q. Xuddi shu mantiq bilan Murda Yig'uvchi ham chiqarib tashlandi, ikki tanlov qoldi — Sir Ochuvchi va Ko'ruvchi.
+
+Bir xil Sequence iksirlari bir xilda xavfli va men ko'proq ma'lumot ololmaydigan sharti ostida, shuningdek, Sir Ochuvchi ham, Ko'ruvchi ham talablarimga mos kelishini hisobga olsam, imperator Roselle shunchaki o'tincha gap aytganmi yoki Shogird, Qaroqchi va Ko'ruvchini tanlamaganidan rostdan afsuslanganmi — baribir, bu mening ko'nglimdagi tarozini engshtirishga yetarli edi.
+
+Qolaversa, kundalikdan shuni bilsa bo'lardiki, agar u hazm qilish va rol o'ynashning haqiqiy mohiyatini anglab olsa, iksir keltiradigan salbiy ta'sirlardan anchagina darajada qochishi mumkin edi. Odamlarni buzilish va telbalikka burib yuboradigan pichirlashlar va xayoliy vasvasalarga kelsak, u buni Beyonder bo'lmasdan ham allaqachon boshdan kechirgandi!
+
+— Mayli. — Dunn o'rnidan turib, kalta silindr shlyapasini oldi. Uni kiyarkan dedi: — Ortimdan pastga tush.
+
+Klein bosh irg'ab, minnatdorchilik bilan janoblarcha ta'zim qildi.
+
+Tak. Tak. Tak. Ikkovi pastga tushdi, qadam tovushlari jim-jit va keng zinapoya hamda yo'lakda aks-sado berardi. Klein birdan bezovtalik o'rab olganini his qilib, suhbatga mavzu izladi.
+
+— Kapitan, iksir ichish menga sirli ilmga oid tegishli bilimni bevosita bermasligini, faqat uni o'rganish malakasini berishini aytdingiz. Unda sirli ilmning asosiy bilimi qayerdan keladi? Ajdodlarimiz uni jonlari evaziga qo'lga kiritganmi yoki boshqa yo'l bilanmi?
+
+Har safar yer ostiga tushganda, u havoni ayniqsa toza topardi. Shubhasiz, shamollatish a'lo darajada edi. Biroq goho esadigan shabada kishini junjiktirardi.
+
+Dunn unga bir nazar tashladi, kulrang ko'zlaridagi zulmat g'ayritabiiy darajada teran ko'rinardi. U xotirjam javob berdi:
+
+— Ulardan biri sen aytganday — sinov, jamlash va takomillashtirish. Ikkinchisi — xudolar tomonidan ato etish. Uchinchisi, he. Boshqalar eshitmaydigan xatarli pichirlashlar faqat ma'nosiz o'kirib-baqirmaydi. Goho ular sirli ilmga oid ayrim narsalarni ta'riflaydi. Ammo bilishimcha, uzoq muddat pichirlashlarni rostdan tinglagan odamlar istisnosiz aqldan ozgan. Yoki ular buzilib, maxluqqa aylangan. Albatta, biz ularga minnatdor bo'lishimiz kerak. Ular qoldirgan daftarlar sirli ilm sohasida qimmatbaho xazina.
+
+Inson laboratoriya kalamushlarimi? Yer osti yo'lagining sovuq nami Kleinni birdan junjiktirdi. Unda "Ijtimoiy Tarmoq Sehri"ga aylangan omadni oshirish marosimim ham o'sha telba va dahshatli pichirlashlar tufayli oxir-oqibat shunga o'xshash oqibatga olib kelarmikan?
+
+Chorrahada Dunn na Chanis Darvozasi tomon yurdi, na qurol, material va arxiv tomon burildi. Buning o'rniga Kleinni chapga — Avliyo Selena sobori tomon olib bordi. Yo'l yarmida to'xtadi. U nimaga teginib yashirin eshikni ochgani noma'lum bo'ldi.
+
+— Bu — bizning Tungi Lochin jamoamizning alkimyo xonasi. Men keksa Neylga Chanis Darvozasi ichidan Ko'ruvchi iksir formulasi va unga mos materiallarni olib chiqishni aytaman. He, omading ancha yaxshi. Ma'buda senga marhamat qildi. Bizda hali ikkita Ko'ruvchi iksiri uchun kerakli materiallar bo'lsa kerak. Bo'lmasa, sen uzoq kutishingga to'g'ri kelardi. — Dunn eshik ortidagi xonaga ishora qildi. — Shu yerda kut. Keyinroq keksa Neylning iksir tayyorlashini kuzat. Bu sirli ilm o'rganishining eng asosiy qismi. Voy, u yerdagi narsalarga sababsiz teginma. Ular yo juda xavfli, yo qimmat, yoki ikkalasi ham.
+
+Shunday derkan, Dunn avvalgidek qo'shib qo'ydi:
+
+— Voy, ha, yana bir narsani unutibman. Sening Beyonder bo'lishing xatarga ro'baro' bo'lishing va daftarni topish zarurati natijasi. Xizmating buning bir qismi edi, xolos; shu bois hozircha jamoamizning a'zosi bo'lmaysan. Sen hamon mos maoshli fuqaro xodim bo'lasan. Avval menga aytganlarimni qilishda davom etasan. Bitta qo'shimcha narsa — keksa Neyl bilan sirli ilm haqida ko'proq o'rganasan. Vaqtni u bilan kelishib olasan.
+
+— Mayli. — Maosh oshmaganidan biroz xafa bo'lishdan tashqari, Klein qolganlariga to'la rozi edi.
+
+Dunnning aytishicha, iksirni iste'mol qilgandan keyin yangi qo'lga kiritilgan kuchlarini o'rganish va egallash jarayoni hamon bor edi. Agar u darrov rasmiy a'zo bo'lib, g'ayritabiiy vazifalarda qatnashsa, o'limi aniq edi.
+
+Dunn o'girilib, chorraha tomon ikki qadam tashlaganda, birdan ortga burildi.
+
+— Yana bir narsa.
+
+Bilgandim... Klein allaqachon Kapitanining "uslubi"ga o'rganib qolgandi.
+
+— Sirli Tariqatning harakatlaridan biror narsa undirdik, — dedi Dunn odatdagi ifodasi bilan. — Yaqin orada ular seni qo'zg'atishi dargumon, ammo beparvo bo'lma. Bu ularning Antigonus xonadoni daftari ular uchun muhimmi-yo'qmi vaqtincha tasdiqlay olmasligi bilan bog'liq. Bilib olganimizga ko'ra, ular ayrim qadimiy urf-odatlarni saqlab qolgan va ularning Sulaymon imperiyasi hamda o'sha davrning buzuq zodagonlari bilan bog'liqligini tasdiqlay olamiz.
+
+— Tushundim. Rahmat, Kapitan, — dedi Klein nafas chiqarib. Bu ham u kutishni istamaganining — Beyonder bo'lish imkoniyatini shu qadar shoshib ilib olganining sabablaridan biri edi!
+
+Dunn ketganini kuzatib, u boshqa gap aytish uchun ortiga o'girilmasligiga ishonch hosil qilgach, Klein sekin alkimyo xonasiga kirdi.
+
+Xonada uzun stollar bor edi. Probirkalar, pipetkalar, tarozilar va tigellar bor edi. U o'tgan hayotidagi kimyo laboratoriyasini eslatardi. Faqat soddaroq va qadimiyroq edi. Bulardan tashqari, ulkan bir qozon, qoramtir yog'och cho'mich, yarim shaffof billur shar va boshqa narsalar bor edi. Qora Muqaddas Gerb va boshqa g'alati gerblar hamma yerda ko'rinardi. Ular xonaga sirli tus berardi.
+
+Klein qiziqish bilan atrofga alangladi, ammo narsalarga teginadigan darajada ahmoq emasdi. Bir ozdan keyin u qadam tovushini eshitdi. Keksa Neyl murakkab naqshli mitti kumush quti ko'tarib keldi. U hamon zamonga nomuvofiq tuyuladigan o'ziga xos mumtoz qora to'nini, unga mos, chetlari yumaloq namat qalpoq bilan kiygandi.
+
+— O'g'lim, Ko'ruvchini tanlashingni sira kutmagandim. — Keksa Neyl qutini qo'yib, biroz xira qizil ko'zlari bilan Kleinni ko'zdan kechirdi. — Sening fe'l-atvoring yoshligimdagi menga o'xshaydi. Sen olomonga ergashishni istamaysan. Yomon emas. Mana bu bir necha gaz chirog'ini yoq va eshikni yop.
+
+— Mayli. — Klein titrashga yo'l qo'ymaslikka zo'r berib, alkimyo xonasidagi har bir gaz chirog'ini yoqdi. U yana xira yorug'likni xonaga hukmron qildi.
+
+Tak! Tak! Tak! Yashirin eshik yopildi. U o'girilib, oq sochli va chuqur ajinli keksa Neylning bir dasta g'alati bog'langan daraxt shoxlari bilan qora qozonni ishqalayotganini ko'rdi.
+
+— Sequence iksirini tayyorlash nihoyatda sodda, hech bo'lmasa Sequence 7 va undan pasti uchun. Maxsus olov yoki biror qo'shimcha marosim, afsunni-ku aytmasa ham bo'ladi, kerak emas. Bunga ruhan qatnashishga hojat yo'q. Qilish kerak bo'lgan yagona narsa — formulaning qadamlariga amal qilish, aniq miqdorlarni qo'shish va aralashtirish. Tamom-vassalom. — Keksa Neylning ajinlari tabassumidan go'yo gullab ketdi.
+
+— Rostdanmi? — hayrat bilan so'radi Klein. Bu mening omadni oshirish marosimimchalik sodda eshitilyapti... Voy, o'ylab ko'rsang, bu ancha qo'rqinchli...
+
+— Ehtimol, bu xudolar sovg'asidir. Bekani ulug'lasin. — Keksa Neyl ko'kragida betartib bir doira chizdi. Shundan so'ng kumush qutini ochib, qadimiylik ufurib turgan echki terisidan pergament chiqardi.
+
+Sarg'imtir-jigarrang echki terisi sekin-sekin yoyildi, undagi yozuvlar ko'rindi. Klein uzoqdan qarab, uning Hermes tilida — o'zi juda yaxshi taniydigan tilda ekanini angladi. U qonga o'xshash siyoh bilan yozilgan, go'yo hamon oquvchanligini saqlab turgandek edi. Ammo bundan tashqari, u hech qanday jihatdan g'ayrioddiy ko'rinmasdi.
+
+"Ko'ruvchi: 100 millilitr sof suv, 13 tomchi tungi vanil suyuqligi, 7 ta oltin yalpiz bargi..." Klein formula mazmunini ichida jimgina o'qidi, ammo qolganini keksa Neylning bilagi to'sib qo'ydi, uni o'qishiga to'sqinlik qildi.
+
+— Sof suv — bu qayta-qayta distillangan suv. Yaxshiyamki, avval bir oz tayyorlab qo'ygandim, shu bois unga vaqt sarflashning hojati yo'q. — Keksa Neyl tanishtirar ekan, stoldan o'ziga juda tanish tarzda bir katta germetik shisha idishni oldi. Tiqinini ochib, ko'p o'ylamay, qozonga taxminan 100 millilitr sof suv quydi.
+
+Klein so'rashga jur'at eta olmadi, keksa Neylning iksir tayyorlashiga ta'sir qilib qo'yishidan qo'rqdi. Axir, iksirni ichadigan — uning o'zi edi.
+
+— 13 tomchi tungi vanil shirasi. Buni oldindan ajratib olib, efir moyi sifatida saqlash mumkin. — Keksa Neyl kumush qutidan mitti jigarrang shisha oldi va pipetka bilan qozonga bemalol 13 tomchi tomizdi.
+
+Xira, ammo tinchituvchi bir hid taraldi, bu Kleinga g'ayritabiiy bir osoyishtalik hissini berdi.
+
+— 7 ta oltin yalpiz bargi... — Keksa Neyl kumush naqshli qutini olib, qopqog'ini ochdi. Yalang qo'li bilan bir necha barg olib, qozonga sochdi. U yangi va qo'zg'atuvchi bir hidni iskadi.
+
+— 4, 5, 6, 7. Mukammal. — Keksa Neyl kulimsirab, echki terisidagi iksir formulasiga qaradi. — 3 tomchi zaharli baldirg'an. Bu sababsiz ichadigan narsa emas. U butun tanangni o'lim darajasigacha karaxt qila oladi. Qadimda u o'z joniga qasd qilish uchun eng yaxshi tanlov bo'lib chiqqan.
+
+Men ahmoq emasman-ku... — deya ichida masxara qildi Klein.
+
+Keksa Neyl pipetkalarni almashtirib, zaharli baldirg'anni qozonga tomizdi. Aralashma kishi miyasini tetiklashtiruvchi g'alati hid keltirdi.
+
+— 9 gramm ajdar qoni o'ti kukuni. — Keksa Neyl shoshmasdan qo'lini kumush qutiga tiqib, shaffof probirka chiqardi. Ichida bir oz qop-qora kukun bor edi. U stakan va tarozi bilan 9 gramm kukunni o'lchab, qozonga quydi. So'ng aralashmani qoramtir yog'och cho'mich bilan ikki bor aralashtirdi.
+
+Iksir tayyorlashning bunday bemalol jarayoni Kleinni biroz tashvishga soldi.
+
+— Aslida, oldingi materiallar shunchaki yordamchi edi. Aniq miqdor yakuniy natijaga unchalik ta'sir qilmaydi. Bir ozgina ko'proq solaymi? — keksa Neyl hazil qildi. — Oxirgi ikkitasi muhimi. Miqdorni biroz kamaytirish mumkin, ammo talabdan uzoq bo'lmasligi kerak, aks holda "kuchayishing" muvaffaqiyatsiz tugashi mumkin. Voy, miqdor sira ko'proq bo'lmasligi kerak, hatto ozgina ham. Aks holda ruhiy muammolar uchun davolanishingga to'g'ri keladi. Darrov o'lib qolish ham mumkin.
+
+Keksa Neylning kumush qutidan qora shisha idish chiqarganini ko'rib, Klein darrov taranglashdi.
+
+— Lavos kalmari qoni, 10 millilitr. Bunday kalmar g'ayrioddiy biologik tur hisoblanadi. U aniq mutatsiyaga uchragan. U sirga burkangan. Uning qoni quyosh nuri ostida tez parchalanib, o'ziga xos xususiyatlarini yo'qotadi. Uni shaffof bo'lmagan materialda saqlash kerak. — Keksa Neylning ohangi endi bemalol eshitilmadi. U tez va ehtiyotkorlik bilan probirka bilan 10 millilitr qon oldi. Qon osmondek ko'k edi. Goho u xayoliy pufakchalar hosil qilardi — go'yo ruhiy olam bilan bog'langandek.
+
+— Qonni probirkaga quygandan keyin, qolgan tomchilar ehtiyot chorasi sifatida hisobga olinmaydi, — pichirladi keksa Neyl. Ko'k qon qozonga kirib, avvalgi suyuqlikka tekkan zahoti, u bo'liq-bo'liq ovoz chiqardi. Atrofdagi yorug'lik ochiq-ko'k tusga bo'yaldi, bu Kleinga g'alati bir yiroqlik, ammo ayni paytda yaqinlik hissini berdi. Bu xuddi onaning bachadonida bo'lish tuyg'usidek edi. U insonning ruhini ko'tarardi.
+
+— So'nggi narsa. Yulduz Suvi billuri. 50 gramm. — Keksa Neylning ovozi Kleinning qulog'ida yangrab, uni cho'chitib uyg'otdi, u stolga qaradi. Mo'ysafidning qo'lida nihoyatda sof bir bo'lak billur bor edi. Qolaversa, billur Yerdagi jelega o'xshab, jelesimon ko'rinardi. Unda qattiqlik yo'q edi. Ko'k yorug'lik ostida u nur uchqunlarini aks ettirar, go'yo ichida yulduzlarning yarqiroq bo'shlig'i mujassamdek edi.
+
+— Bu bashorat billurlari yaratish uchun a'lo material... Biror xatoni hisobga olib, ozginaroq. — Keksa Neyl o'lcharkan, mitti naqshli kumush pichoq bilan billurni qirqib oldi.
+
+— Sof suv, tungi vanil, oltin yalpiz barglari, zaharli baldirg'an shirasi, ajdar qoni o'ti, Lavos kalmari qoni va Yulduz Suvi billuri Ko'ruvchini tashkil qiladi... — Shu payt Klein formulani eslamasdan turolmadi.
+
+Hammasi tayyor bo'lgach, keksa Neyl qozonga bir necha bo'lak Yulduz Suvi billurini quydi.
+
+Vishsh! Xayoliy tuman darrov otilib chiqib, alkimyo xonasini g'ira-shira qildi. Klein tuman orasida son-sanoqsiz yulduzlar to'plamini ko'rgandek bo'ldi va o'zini ko'rinmas bir mavjudot kuzatayotgandek his qildi.
+
+Bir necha soniyadan so'ng tuman tarqaldi. Keksa Neyl qoramtir yog'och cho'mich bilan biroz yopishqoq to'q-ko'k suyuqlikni chiqarib oldi. Unda g'alati xususiyatlar bor edi — yelimday va ajralmas. Qora qozonda bir tomchi ham qolmadi.
+
+To'q-ko'k suyuqlik shaffof bo'lmagan piyolaga quyildi, so'ng keksa Neyl unga ishora qildi.
+
+— Tayyor, sening Ko'ruvchi iksiring.
+
+
+# BOB 32: Ruhiy Ko'rish
+
+Klein to'q-ko'k jelesimon suyuqlikka qaradi, uni na bo'lak, na bir piyola suyuqlik deb ta'riflash qiyin edi. Og'zining suvini yutib, katta qiyinchilik bilan dedi:
+
+— Shundoq ichib qo'ya qolaymi?
+
+— Boshqa biror tayyorgarlikka hojat yo'qmi? Masalan, marosim, afsun yoki duo?
+
+Keksa Neyl lo'nda qilib tasdiqlab, so'ng dedi:
+
+— Tayyorgarlik? Bor. Bir piyola Intis Aurmir uzum vinosi ol, bir Desi sigarasini so'r, so'ng tinchituvchi bir kuyni hushtak chalib, jo'shqin saroy raqsini o'yna. Xohlasang chechetka ham qilsang bo'ladi. Oxirida bir o'yin Gvent kartalari... — Kleinning ifodasi dovdiraganini ko'rib, keksa Neyl kulib, endigina aytganini xulosaladi: — Agar asabiylashayotgan bo'lsang.
+
+...Ancha hazilkash ekansiz-da...? Kleinning og'zi cheti uchdi, u qurol sug'urish istagini bosdi. Hassasini qo'yib, o'ng qo'lini cho'zdi. Go'yo og'ir bir narsa ko'tarayotgandek, shaffof bo'lmagan piyolani ko'tardi. Iksirning hidi xira va go'yo jismsiz edi.
+
+— O'g'lim, ikkilanma. Qancha ikkilansang, shuncha ko'p asabiylashasan va qo'rqasan. Bu faqat keyingi so'rilishga ta'sir qiladi, xolos, — dedi keksa Neyl Kleinga orqasini berib. Go'yo buni beg'amgina aytayotgandek edi.
+
+U qachon yaqindagi yuvinish idishi yoniga borgani noma'lum bo'ldi. Jo'mrakni ochib, qo'llarini yuvdi.
+
+Klein jimgina bosh irg'ab, chuqur nafas oldi. Xuddi bolaligidagidek, burnini chimchilab, uni dori kabi ichdi. Shaffof bo'lmagan piyolani og'ziga olib, boshini orqaga tashladi va bir qultumda ichib yubordi.
+
+Salqin va silliq tuyg'u tez og'iz bo'shlig'ini to'ldirdi. So'ng u bo'g'zi orqali oshqozoniga oqib tushdi. Yopishqoq, to'q-ko'k suyuqlik go'yo ingichka va uzun changalchalar o'stirayotgandek, Kleinning har bir hujayrasiga qo'zg'alish va sovuqlik olib keldi. U beixtiyor tirishmasdan turolmadi, ko'zlari tez xiralashdi.
+
+Barcha ranglar go'yo to'yingandek edi. Qizillar qizilroq, ko'klar ko'kroq, qoralar qoraroq edi. Boy ranglar impressionistik suratdek aralashdi. Klein bunday manzarani avval ko'rgandi. Bu Ruh Mediumi Deyli uni so'roq qilgan paytda edi.
+
+O'sha lahzada uning nigohi xiralashdi va garchi ongi yengil his qilsa-da, u tiniq edi. U o'zini dengizda suzib yurgan kema halokatidan omon qolgan kishidek his qildi.
+
+Sekin-asta atrofi ko'rinarli bo'ldi. Barcha ranglar asliga qaytdi, kulrang va g'ira-shira tuman taraldi. Uning atrofida ta'riflash qiyin bo'lgan jismlar bor edi. Go'yo mavjud bo'lmaydigan shaffof narsalar bor edi. Chuqurda turli rangdagi toza yengil yorug'lik to'plamlari bor edi. Yorug'lik go'yo hayotga ega yoki ulkan bilimni o'z ichiga olgandek edi.
+
+Bu omadni oshirish marosimida ko'rganlarimga biroz o'xshaydi... Klein beixtiyor pastga qaraganda, "u" hamon dastlabki joyida turib, tanasi tirishayotganini angladi. Birdan u bir narsani angladi, bu uning ongini to'satdan cho'ktirib, u bilan birlashtirdi.
+
+Bum! Tuman tez tarqaldi, ranglar me'yorga qaytdi. Yorqin, tiniq halqa va mavjud bo'lmagan narsalar bir zumda g'oyib bo'ldi. Alkimyo xonasidagi manzara me'yorga qaytdi, ammo Klein boshi shishganini his qildi. U go'yo uzib tashlanayotgandek edi. Ko'rgan har bir narsasining son-sanoqsiz aks-tasvirlari bor edi. Quloqlarini jismsiz bir pichirlash bosib oldi.
+
+— Hornakis... Flegrea... Hornakis... Flegrea... Hornakis... Flegrea...
+
+Klein peshonasida sanchuvchi og'riqni his qildi, u o'zidagi noqulaylikni bo'shatish uchun tezda vayronagarchilik qilish o'ylariga keldi. Qoshini chimirib, shoshib bosh chayqadi.
+
+— Ko'rishing g'ayrioddiymi? Avval eshitmaydigan narsalaringni ham eshityapsanmi? — dedi keksa Neyl uning yonida tabassumini yashirib.
+
+— Ha, janob Neyl, nima qilishim kerak? — Klein kuchli jununga chidab so'radi.
+
+Keksa Neyl kulimsiradi.
+
+— Bu — iksir energiyasining sizib chiqishi natijasi. Senda uni nazorat qilish vositasi yo'q. Mayli, men aytgandek qil. Xayolingda bir narsani — oddiy bir narsani tasavvur qil. Uni sodda va oson qil.
+
+Klein tez diqqatini jamlab, qora ipakdan to'qilgan o'zining kalta silindr shlyapasini xayolida jonlantirdi. Unga tekkandagi tuyg'uni va uning aniq shaklini esladi.
+
+— Butun diqqatingni unga qarat. Konturlarni yaratib, buni qayta-qayta takrorla. Biroz yaxshi bo'ldimi? — Keksa Neylning ovozi osoyishta bir qo'shiqdek uning ongiga kirib bordi.
+
+Klein diqqatini sekin-asta xayolidagi shlyapaga qaratdi. U pichirlashlar past bir shivirga aylanib, so'ng g'oyib bo'lganini his qildi. Ko'rgan aks-tasvirlar ham bir-birining ustiga taxlanib, endi g'ira-shira ko'rinmadi.
+
+— Ancha yaxshi, — dedi Klein xayolini tartibsiz hissiyotlardan tinchitib, nafas chiqargach. U tanasiga qaradi va hech qanday g'ayrioddiy narsa yuz bermaganini ko'rdi. A'zoyi badanini qimirlatib, yarim intizor, yarim shubha bilan so'radi: — Uddaladimmi? Endi men Ko'ruvchi hisoblanamanmi?
+
+Keksa Neyl ko'zguga o'xshash simob plastinkasini chiqarib, uni uning oldiga tutdi.
+
+— Ko'zlaringga qara.
+
+Klein nigohini jamlab, qora silindr shlyapa kiyganini ko'rdi. Konturi yaqqol ko'rinar, yuz tuzilishi normal edi. Yuzini ter qoplaganidan tashqari, u hech qanday jihatdan boshqacha ko'rinmasdi. Keksa Neylning ko'rsatmasiga amal qilib, ko'zlariga sinchiklab qaradi. Faqat shundagina uning jigarrang ko'zlari ancha teranlashganini payqadi. Shu qadar teranlashganki, u tundek — butunlay zulmatdagidek edi. Shu qadar teran tuyulardiki, u boshqalarning ruhini so'rib olardigandek edi.
+
+Odatda to'q jigarrang qorachiqlar osongina qora deb adashtiriladi. Juda sinchiklab qaramasa, hatto Kleinning o'zi ham buni payqamasdi.
+
+— Bu iksir kuchining jismoniy namoyon bo'lishi. Tafakkurni va kuchingni jamlashni o'rgansang, ko'zlaring me'yorga qaytadi. — Keksa Neyl o'ng qo'lini cho'zib jilmaydi. — Tabriklayman, bizning yangi Beyonderimiz, bizning Ko'ruvchimiz.
+
+— Rahmat. — Klein qo'lini cho'zib, qo'l berib ko'rishdi. — Janob Neyl, Tafakkurni qachon o'rgana olaman?
+
+— Hozir o'rgansang bo'ladi. Tafakkurning dastlabki qadamlari nisbatan sodda. Beyonderlar uchun bu yanada osonroq, — dedi keksa Neyl jilmayib. — Hozirgina diqqatingni chalg'itish uchun xayolingda bir narsa hosil qilib, energiya sizib chiqishini ichkariga burishing — aslida Tafakkurning birinchi qadami. Yana bir bor qilib ko'r.
+
+Klein ko'zlarini yumdi va yana xayolida kalta silindr shlyapani tasvirladi. Diqqati avvalgidan osonroq jamlanganga o'xshardi. Tez orada qalqib chiqqan tartibsiz o'ylar tez g'oyib bo'lib, shlyapaning konturi qoldi.
+
+— Miyangni biroz bo'm-bo'sh qil. Tasavvur qilgan narsangni almashtir. Bu olamda mavjud bo'lmagan narsani, butunlay yo'qdan tasavvur qilingan narsani ishlat.
+
+— Bu qoidaga amal qilishing kerak. Faqat shundagina Tafakkurga kirasan, faqat shundagina "Men" tushunchasidan oshib o'tasan. Cheksiz "Men" Koinot bilan birlashadi, bu senga haqiqatni ko'rish va anglash qobiliyatini beradi. Faqat o'zing tushuna oladigan bilimni qo'lga kiritasan. Sirli ilm sohasida bu Mistik Tajriba deb ataladi, — dedi keksa Neyl tinchituvchi ohangda. — Sen faqat keyinroq aytadigan ta'riflarimni tinglashing kerak. Eng muhimi — Tafakkurga kirish.
+
+Bu olamda mavjud bo'lmagan narsa. Butunlay yo'qdan tasavvur qilingan narsa... Yerdagi narsalar sanaladimi? Klein televizorda ko'rgan tuproq-yashil rangli qit'alararo raketani ishlatib ko'rdi. Kalta silindr shlyapani bu uzun va yo'g'on raketaga almashtirdi. Biroq qancha konturlamasin yoki tasavvur qilmasin, oxir-oqibat faqat diqqatini jamlash bilan tugadi.
+
+Ish bermayotganga o'xshaydi... Klein noiloj xayolini erkin qo'yib yubordi. U bir yorug'lik sharini, so'ng ko'plab shunga o'xshash narsalarni konturlab, ularni birga jamladi. Yorug'lik sharlari bir-birining ustiga taxlandi. U xayoliy bir narsadek tuyulardi. Kleinning o'ylari asta-sekin jismsiz va suzuvchan tus oldi.
+
+Tani-yu joni tinchlandi. Mavjud bo'lmaydek tuyulgan narsalar, yorqin yorug'lik to'plamli tuman va murakkab ranglar yana paydo bo'ldi. Ular qo'l yetar darajada yaqin osmonda suzardi. U ruhiyatini sekin-asta cho'zib, ularga jimgina pastdan qaradi. U buni sezdi va o'ziga singdirdi.
+
+— Juda yaxshi. Ko'ruvchidan kutilganidek. Tafakkurga juda silliq kirding. Faqat o'shandagi mendan biroz pastroq, xolos. Biroz, — dedi keksa Neyl kulimsirab. — Unda men senga kelajakda sirli ilmda eng keng tarqalgan, egallash eng oson va eng foydali qobiliyatni o'rgata boshlayman. Ruhiy Ko'rish!
+
+U gaz chiroqlarini birin-ketin o'chirdi, ammo alkimyo xonasi eshigini ochib qo'ydi. Bu Klein turgan joyni qorong'i qildi, ammo narsalar sharpasini ilg'ay olmaydigan darajada emas.
+
+— Mayli. Hozirgi holatingda qo'llaringni ko'tarib, ko'zlaring oldiga qo'y. Ko'rsatkich barmoqlaring bir-biriga qaragan bo'lsin, ammo tegmasin.
+
+— Ko'zlaringni ochib, zulmatga ko'nikkuningcha ochiq tut.
+
+Klein keksa Neylning ta'rifiga ko'ra har bir qadamni bajardi. U barmoqlarining va atrofdagi narsalarning sharpasini ko'rdi.
+
+— Aslida, tanang butunlay bo'shashishi uchun yotishing kerak. Ammo Tafakkuring ta'siri yomon emasligi sababli, davom etaylik. — Keksa Neyl kuldi. — Nigohingni qo'llaring ortidagi bir nuqtaga qarat. U ortida bo'lishi shart. So'ng barmoqlaringni sekin qimirlatib, ularga tegmasdan, xuddi shu holatni saqla. Shuningdek, ularni ko'zing oldidan chiqarib yuborma.
+
+Klein buni xotirjam tinglab, nigohini kafti ortidagi bo'sh nuqtaga qadadi. So'ng ko'rsatkich barmoqlarini ko'rish doirasi ichida sekin qimirlatdi.
+
+Bir marta, ikki marta, uch marta... Birdan Klein barmoqlari orasida olovrang qizil rangni ko'rdi.
+
+— E... — U bir tovush chiqardi.
+
+— Rang ko'ryapsanmi? To'g'ri. Bu — Ruhiy Ko'rishning dastlabki qadami. Ko'rayotgan rang — sening auraing, — dedi keksa Neyl kulimsirab. — Shoshilma. Yana bir necha bor qil. Uni barqarorlashtirgach, boshqa yoqqa qara. Men ham bu fursatdan foydalanib, turli ranglarning turli ma'nolarini senga tushuntiraman.
+
+— Mayli. — Klein barmoqlarini u yoqdan-bu yoqqa qimirlatib, nigohini olovrang qizilga qaratdi.
+
+Keksa Neyl bir oz o'ylab dedi:
+
+— Soddaroq qilib aytganda, sirli ilmning asosiy yo'li insonning jismsiz qismlarini to'rt bosqichga bo'ladi. Markazda Ruh Tanasi bor, bu ayni paytda har kimning asosiy ruhiyligi. Bir oqim borki, u barcha biologik mavjudotlar ruhiyatga va Ruh Tanasiga ega deb hisoblaydi.
+
+— Boshqasini bilmayman, ammo Sir Ochuvchilar uchun Tafakkurning maqsadi va kuchimizni oshirish usuli Ruh Tanasiga qaratilgan.
+
+— Ruh Tanasidan tashqarida Astral Proyeksiya bor. Bu Ruh Tanasining ruhiy olam bilan va yulduzli fazo bilan muloqot qilish vositasi. U Ruh Tanasining tashqi namoyoni hisoblanadi. Qolaversa, u sening shaxsiy intilishing va hukmron hissiyotlaringga bevosita bog'liq bo'ladi... Iksirni iste'mol qilgandan keyin ko'rgan manzaralaring — bu Astral Proyeksiyang ruhiy olamda kezganda ko'radigan manzaralar. U olam jismoniy olam qonunlariga bo'ysunmaydi. U "Men" tushunchasidan oshib o'tishni, cheksiz "Men"ni va Koinotning "Men"ini o'z ichiga oladi. O'tmish, hozir va kelajak bir-birining ustiga taxlangan bo'lishi mumkin — bu bashoratning manbai.
+
+— Ruhiy olamda ko'rganing shunchaki tasvir, ramz. Uning haqiqiy ma'nosini tushunish uchun uni sharhlashing kerak.
+
+— Bashorat va ko'plab sehrli afsunlar Astral Proyeksiya orqali amalga oshiriladi.
+
+— Uning Ruh Tanasi bilan munosabati va farqlarini chalkashtirib yuborma.
+
+Biri shunchaki tana, ikkinchisi esa shakl uchun... Klein barmoqlari uchi orasidagi auraga qarashda davom etib, sodda xulosa chiqardi.
+
+— Undan tashqaridagisi Qalb va Aql Tanasi. Shu nuqtadan boshlab, u jismoniy tana bilan birlashadi... U sening miyangni o'z ichiga oladi va xulosa chiqarish qobiliyating, tahliliy qobiliyating, kuzatuvchanliging va aniqlash qobiliyatingning umumiy namoyonidir. Ba'zi iksirlar asosan shuni oshiradi. Anchagina sehrli afsun ham shunga qaratilgan. — Keksa Neyl ancha batafsil tushuntirdi. — Eng tashqi qatlam — Efir Tanasi. Bu sening hayotiy energiyang va jismoniy shaklingning namoyoni.
+
+— Ko'rayotgan aura rangi — bu Efir Tanangning tashqi hodisasi. Boshqacha aytganda, Ruhiy Ko'rish bilan bevosita ko'ra oladigan ruhiy tanalar, arvohlar va sharpalardan tashqari, unga ko'rilmasligi kerak bo'lgan ayrim mavjudotlar ham kirishi mumkin. Sen boshqalarning Efir Tanasini yoki ularning auralarini ham ko'ra olasan. Ularning qalinligi, yorqinligi va rangidan ularning sog'lig'i va hissiy holatini aniqlay olasan.
+
+— Ruhiy Ko'rishing yaxshilanib, ko'proq sirli ilm bilimini egallasang, yanada ko'proq tafsilotni kashf eta olasan. Hatto boshqalarning umrini ham aniqlay olasan.
+
+— Aytmoqchi, men aytgan hissiy holat ham sening Astral Proyeksiyang tufayli namoyon bo'ladi. Sequenceda yuqoriroq ko'tarilsang, Ruhiy Ko'rishing nisbatan yuqori bosqichga yetadi. Hatto boshqaning Astral Proyeksiyasini ham ko'ra olasan. Shunda yanada ko'proq narsa o'rganasan. Bu faqat Ko'ruvchilar va Sir Ochuvchilar yeta oladigan daraja.
+
+— Ba'zilar hatto Ruhiy Ko'rishning eng kuchli shakli kishiga istalgan joyda istalgan narsani — o'tmish va kelajakni ham — ko'rish imkonini beradi deb da'vo qiladi. Biroq men bunga shubha bilan qarayman.
+
+Ancha qudratli eshitilyapti... Klein deyarli ishtiyoqmand bo'lib qoldi.
+
+Keksa Neyl yo'talib davom etdi:
+
+— Efir Tanasi va aura ranglariga qaytaylik. A'zolaring va harakat talab qilinadigan qismlaring qizil ko'rinadi. Boshing va miyang yuzasi binafsha ko'rinadi. Chiqindi ajratadigan joylar to'q sariq ko'rinadi. Hazm tizimi sariq ko'rinadi. Yurak va boshqa tartibga soluvchi tizimlar yashil ko'rinadi. Bo'g'zing va asab tizimining boshqa qismlari ko'k ko'rinadi. Butunlay muvozanatli tana oq rangga burkanadi... Bu sog'liq belgisi.
+
+— Rang qorayganda yoki qalinligi yupqalashganda, rang o'zgaradi. Bu mos joy muammoga uchraganini bildiradi. Bu uning charchoq yoki kasallik holatida ekanini anglatadi.
+
+— Bundan tashqari, Astral Proyeksiyaning ichki qatlami hukmron hissiyotlarni ifodalaydi. Qizil — ehtiros va hayajon. To'q sariq — iliqlik va qoniqish. Sariq — baxt va ochiqko'ngillik. Yashil — xotirjamlik va osoyishtalik. Ko'k — o'yga botgan kishidagi sovuqlik va harakatsizlik. Oq — yorqinlik, takomilga intilish. To'q ranglar — tashvish, qayg'u va sukunat. Binafsha — ruhiyat boshqaruvni qo'lga olayotganini, sovuqlik va begonalashuvni bildiradi...
+
+Klein ma'lumotni jimgina yodladi va dastlabki Ruhiy Ko'rishini barqarorlashtirdi.
+
+— Yaxshi, boshqa narsalarga qarasang bo'ladi. — Keksa Neyl boshqa gapirmay, bosh irg'adi.
+
+Klein boshini sekin burib, keksa Neylga qaradi. Haqiqatan, u tanasining turli qismlarida turli ranglarni ko'rdi. Aura turli joylarda ham qalin, ham yupqa edi. Boshidagi binafsha rang eng yorqin, a'zolaridagi qizillik nisbatan to'q edi. Tanasining umumiy oqligi ham biroz so'ngandi.
+
+Haqiqatan, u keksayib qolibdi... Klein o'ziga o'zi jimgina izoh berdi. Faqat ko'rgani bilangina u Beyonder bo'lganini his qildi!
+
+— Men endi Beyonderman!
+
+U nigohini ko'chirib, keksa Neylni sinchiklab ko'zdan kechirganda, birdan uning ortidagi bo'shliqda qoshsiz, sovuq va shafqatsiz bir juft yarim shaffof ko'zni ko'rdi!
+
+Bu deyarli xayoliy ko'zlar keksa Neylga, shuningdek, unga ham diqqat bilan tikilib turardi!
+
+Bu... Klein junjikib, og'zi ochilgancha dedi:
+
+— Ortingizda bir juft ko'z bor!
+
+Keksa Neyl esankirab, so'ng zo'rma-zo'raki jilmaydi.
+
+— Ularga e'tibor berma.
+
+
+# BOB 33: Almashtirgich
+
+Keksa Neyl gapini tugatishi bilanoq, uning ortidagi zulmatda pana bo'lib turgan xayoliy bir juft ko'z g'oyib bo'ldi. Ruhiy Ko'rish holatida bo'lishiga qaramay, Klein endi uning mavjudligi izini ilg'ay olmadi.
+
+— Bu — marosim sehrining xususiyati, — tushuntirdi keksa Neyl kulimsirab.
+
+Maftunkor... Ruhiy Ko'rish — Yin-Yang ko'zlarining kuchaytirilgan versiyasimi? Klein o'zini yangi o'yinchoq olgan boladek his qildi. Hayajon ichida nigohini burib, xonaning har bir burchagini kuzata boshladi. U Ruhiy Ko'rish bilan va usiz alkimyo xonasining farqini ko'rmoqchi edi.
+
+Zulmatdagi stollar, probirkalar, tarozilar, piyolalar va shkaflar kabi narsalarning konturi Ruhiy Ko'rishsiz ko'ringanidan farq qilmasdi. Ular hech qanday yorug'lik yoki rang sochmasdi.
+
+Jonsiz narsalarda hech qanday ruhiyat yo'qmi? Klein o'ziga o'zi pichirlab, nigohini kumush quti tomon yugurtirdi. Birdan u rang-baranglikni ko'rdi. Ranglar osmondek ko'k, yulduzlardek yarqiroq yoki yonayotgan olovdek qirmizi-qizil edi!
+
+— G'ayrioddiy mavjudotlardan olingan materiallarda hamon ozmi-ko'pmi hayot bor, va... ular hamon faolmi? Manbasi allaqachon o'lgan bo'lsa ham? — Klein so'zlarini o'ylab, keksa Neyldan yordam so'radi.
+
+— Aniqroq ta'rifi — ularda qoldiq ruhiyatlar bor. Bu iksirni muvaffaqiyatli tayyorlashning muhim nuqtalaridan biri. Bu ayni paytda Beyonder nazoratini yo'qotishining sabablaridan biri ham. Dunn senga allaqachon aytgan bo'lsa kerak, — tushuntirdi keksa Neyl ochiq-oydin. U birdan bir narsani eslab kuldi. — Esimda, Murda Yig'uvchi formulasi quritilgan, yetuk qora dog'li baqani talab qiladi. O'sha iksirni ichish uchun ko'p jasorat kerak.
+
+Klein biroz tasavvur qilib, buni jirkanch topdi. U keksa Neylning gapini ma'qullamay, nigohini qorong'i hududga burdi. Biroq u ko'rishni intizorlik bilan kutgan ruhiy tanalar yoki arvohlar yo'q edi.
+
+— Ruhlar olami hamma yerda deyishmaydimi? — so'radi u qiziqsinib.
+
+Keksa Neyl lo'nda qilib kulimsirab dedi:
+
+— Bola, ortimdan takrorla. "Bu — Tungi Lochin otryadining qarorgohi. Bu — Abadiy Tun ma'budasi cherkovi ostidagi yer. Bu yerda ko'plab Beyonderlar bor! Sizningcha, biz arvoh va ruhlarning bu yerda kezishiga yo'l qo'yarmidik? Qolaversa, ruhiy olam va ruh — ikki xil tushuncha."
+
+Klein biroz uyalib, boshini burdi, go'yo kirish joyidagi gaz chiroqlarining xira nuriga qarayotgandek.
+
+— Tushundim.
+
+Gapirar ekan, qoshlari orasi tirisha boshladi. Nima bo'lyapti? Klein endigina o'girilib so'ramoqchi bo'lganda, birdan yorug'lik chetidagi eshik yonida jimgina turgan bir qiyofani ko'rdi. U insonga o'xshardi, ammo uning aura ranglari zulmat bilan mukammal aralashib, ajratib bo'lmas qilgandi.
+
+His!
+
+Klein qoshlari orasida og'riqli bir tirishishni sezdi. Nigohini yana jamladi, ammo u "shaklsiz" qiyofa yo'q edi!
+
+G'alati... U o'girilib so'radi:
+
+— Janob Neyl, qoshlarim orasi tirishib biroz og'riyapti.
+
+— Haha, bu juda keng tarqalgan. Sen yangi Beyondersan. Ruhiy Ko'rish Ruh Tanangga katta yuk yuklaydi. Qolaversa, u seni muttasil holdan toydiradi. Jismoniy ta'sirlari qoshlar orasi tirishishi, bosh og'rig'i, o'ta sezgirlik va kichik gallyutsinatsiyalar bo'lishi mumkin. Ruhiy Ko'rish bilan narsalarga qaraganda, notanish muhit tufayli o'zingni noqulay his qilishing oson. Hissiyotlaring boshqalardan osongina ta'sirlanishi ham mumkin. Bularga e'tibor berishing kerak. Sen ularga qayta-qayta mashq qilish bilan ko'nikib, ularni bartaraf eta olasan. Bundan tashqari, undan kam foydalan va o'z vaqtida to'xtat, — javob berdi keksa Neyl jilmayib.
+
+Nega bundan zavqlanayotgandek tuyulasiz... Klein shoshib maslahat so'radi:
+
+— Unda Ruhiy Ko'rish holatidan qanday chiqaman?
+
+U ko'rgan ko'rinmas qiyofani tilga olmoqchi edi, ammo alomatlar orasida kichik gallyutsinatsiyalarni eshitgach, bu fikrini bir chetga surdi. Qoshlar orasi tirishishi va bosh og'rig'idan u keksa Neylning javobini to'la taxmin qila olardi!
+
+— Avvalgidek, diqqatingni chalg'itish uchun bir narsani o'yla. U seni Tafakkurdan chiqaradi. Ko'zlaringni yumib, ruhiyatingni nazorat qil va unga to'xtashni qayta-qayta ayt. Yana ko'zlaringni ochganingda, Ruhiy Ko'rishing tugaganini ko'rasan. — Keksa Neyl bemalol tasvirlab, tugatgach qo'shib qo'ydi: — Albatta, bu eng arzimas va qo'pol usul. Biz mashq orqali Tafakkurda o'zimizga qayta-qayta ishora berib, ruhiyatimizga ta'sir qila olamiz. Shunda sende sodda bir almashtirgich bo'ladi. Masalan, qoshlaring orasini ikki marta yengilgina chertish senga Ruhiy Ko'rishni osongina ishga tushirish imkonini beradi. Yana ikki marta chertish uni shunchaki to'xtatadi. Uni qanday sozlashing esa odatlaring va didingga bog'liq.
+
+— Tushundim. — Klein bir oz o'ylab, keksa Neylga taqlid qilib, qoshlari orasini ikki marta chertishni Ruhiy Ko'rishining almashtirgichi qilib olishni rejalashtirdi. Bir marta chertish osongina boshga beixtiyor urilgan zarbaga adashtirilardi, uch marta chertish esa xatarli vaziyatda qimmatbaho vaqtni isrof qilishi mumkin edi. Barmoq chertish kabi harakatlarga kelsak, ular juda diqqat tortardi.
+
+U diqqatini bo'shashtirib, taxlangan yorug'lik sharlarini tasavvur qildi va yana Tafakkur holatiga kirdi. Keksa Neyl rahbarligida, qayta-qayta ishora va mashqdan so'ng, nihoyat o'zining "almashtirgich"ini "sozladi". U mushtini yengilgina tugib, ko'rsatkich barmog'i bo'g'ini bilan qoshlari orasini ikki marta chertdi. Darrov ko'z oldida turli qalinlik va rangdagi yarqiroq auralar paydo bo'ldi. Yana ikki marta chertgach, hamma narsa me'yorga qaytdi.
+
+— Nihoyat egallabman... — u zavq bilan xo'rsindi.
+
+Faqat shundagina u qanchalik holdan toyganini angladi, go'yo har lahzada uxlab qolishi mumkindek edi. Miyasi go'yo uch tun bedor o'tkazgandek og'rirdi.
+
+Keksa Neyl kulimsirab dedi:
+
+— Biz Uyqusiz emasmiz. Har mashqdan va har safar Ruhiy Ko'rishni haddan ortiq ishlatganingdan keyin, senga biroz uyqu kerak bo'ladi. Endi qaytib, yaxshilab dam ol. Tushdan keyin Uelchning uyi joylashgan Temir Xoch ko'chasiga borib, aylanib yur. Antigonus xonadoni daftari haqidagi ip uchlarini imkon qadar tezroq topishga harakat qil. Ertaga senga sirli ilmni o'rgatishda davom etaman. Albatta, tarixiy hujjatlarni o'qishni unutma.
+
+— Mayli. — Klein keksa Neylning rejalariga to'la rozi bo'ldi. Hassasini olib, alkimyo xonasidan chiqdi. Keksa Neyl qurolxonaga qaytarkan, eshik yopilishini kuzatdi.
+
+Klein qoshlari orasi va chakkalarini uqalab, hassasi yordamida zinapoyadan sekin ko'tarildi.
+
+Shu payt Dunn Smit uning ortidan, lablari uchini ko'targancha keldi. Teran nigoh bilan dedi:
+
+— Keksa Neyldan eshitishimcha, sen juda mos nomzod ekansan. Hatto Tafakkursiz ham Ruhiy Ko'rishni ishlata olibsan.
+
+— Ehtimol, bu Ko'ruvchining o'ziga xos xususiyatidir, — javob berdi Klein kamtarinlik bilan. U Dunn keksa Neyl o'rniga qurolxonani kuzatib turgan deb taxmin qildi.
+
+Dunn sur'atini sekinlatib, Kleindan biroz oldinga o'tdi. Bir necha soniya jim turgach, o'girilib dedi:
+
+— Esingda bo'lsin, qiziquvchanlik mushukni o'ldirgan. U Beyonderlarni ham o'ldira oladi. Eshitmasliging kerak bo'lgan pichirlashlarni poylashga yoki ko'rmasliging kerak bo'lgan mavjudotlarni ko'rishga urinma.
+
+— Mayli. — Klein bu yana Beyonderlar nazoratini qanday yo'qotishi haqidagi eslatma ekanini bilardi.
+
+Blackthorn Qo'riqlash Kompaniyasiga kirgach, u Beyonder bo'lganini ochiq-oydin bilmaydigan Rozanna bilan salomlashdi. Sekin eshikdan chiqib, ko'chaga yetdi, u yerdan relssiz aravaga o'tirib, Nargis ko'chasiga bordi. Qaytish yo'lida deyarli uxlab qoldi. Hali ertalab edi, harorat taxminan yigirma olti daraja edi.
+
+Klein belbog'idan mis kalit chiqarib, uyi eshigini ochdi. Uyida hali ko'p narsa yetishmasdi. Mehmonxona va ovqatlanish zali hamon bo'm-bo'sh edi. Benson va Melissaning ishi yo maktabi bor edi, shu bois ikkovi ham ertalab erta chiqib ketishgandi. Kleinda boshqa narsa bilan shug'ullanishga holi yo'q edi. U eshikni yopib, jadal ikkinchi qavatga chiqdi va kitob javoni bilan jihozlangan, o'ziga tegishli yotoqxonaga kirdi.
+
+Frakini yechib, kiyimilgichga osgach, u ishtiyoq bilan karavotga sho'ng'idi. Boshi yostiqqa tekkan zahoti, uxlab qoldi.
+
+Kleinni yorqin quyosh nuri uyg'otdi. U boshini burib, ko'zlarini sekin ochdi va tashqarida yondirayotgan quyoshni ko'rdi.
+
+— Soat nechchi bo'ldi? Tushdan keyingi Taro klubini o'tkazib yubordimmi?
+
+U zo'rg'a o'rnidan turib, kiyimilgich oldiga bordi va frakning ichki astari cho'ntagidan cho'ntak soatini oldi. U nafaqat bu masalani unutgan, balki yotoqxonasi eshigini yopishni va chiqma derazaning pardalarini tortishni ham unutgandi.
+
+Pa! Klein cho'ntak soatini chiqarib, uni ochganda darrov yengil tortdi. Hali peshindan biroz oshgandi. Tushdan keyin soat uchda belgilangan yig'ingacha hali ko'p vaqt bor edi. Bugun dushanba edi — uning Osilgan odam va Adolat bilan yig'in o'tkazadigan kuni.
+
+Klein o'yga botib, qoshlari orasini ikki marta chertdi. Ko'z oldidagi manzara yana o'zgardi, u tanasi yorqin yog'duga qaytganini ko'rdi. Yana ikki marta chertib, Ruhiy Ko'rishini to'xtatdi.
+
+Yengil tortib, birinchi qavatga tushdi va bir choynak suv qaynatdi. Bir oz sifatsiz choy bargi solib, ozgina sariyog' surilgan javdar nonni chaynadi. Shundan so'ng Klein tarixiy materiallar va asl Kleinning kundaligini varaqladi. U bilimini "takrorlash" va mustahkamlashni boshladi.
+
+...
+
+Tushdan keyin soat 2:57 da Klein kitobini yopib, perli ruchkasini berkitdi va pardalarni tortdi. Shu zahoti yotoqxonasi eshigini qulflab, xonani g'ayritabiiy darajada qorong'i qildi.
+
+Qoshlari orasini ikki marta chertib, atrofni ko'zdan kechirish uchun Ruhiy Ko'rishni ishga tushirdi. Xonasida ko'rinmas ruhiy tanalar yo'qligiga ishonch hosil qilgach, Klein Ruhiy Ko'rishni to'xtatdi va vaqtni tekshirish uchun cho'ntak soatini chiqardi.
+
+Tik-tak. Tik-tak. Uchga bir daqiqa qolganda, u qadam tashlay boshladi va avvalgidek, soat miliga teskari yo'nalishda kvadrat shaklida to'rt qadam yurdi. Xitoy tilida ohista afsun aytdi. Faqat bu safar hech qanday asosiy taom tayyorlamagandi.
+
+Klein ko'zlarini yumdi va qo'llarining usti qichishganini his qildi. Go'yo kvadrat hosil qilgan to'rtta qora nuqta bo'rtib, bir narsa proyeksiyalayotgandek edi.
+
+Isterikali baqiriqlar va vasvasali pichirlashlar yangray boshladi, ammo Klein bosh og'rig'i birinchi martagidek qattiq emasligini angladi. U ta'sirlanmagani emas, balki o'zini tinglashdan tiyishga zo'r berayotgandi. Beyonder sifatida, u bunday muhitda ko'proq o'zini tutishi kerak edi.
+
+Tez orada tanasi yengillashib, u suzib ko'tarildi. U taralayotgan kulrang-oqish va g'ira-shira tumanni ko'rdi. So'ng to'q qizil "yulduzlar"ni ko'rdi. Ulardan ikkitasi u bilan g'ayritabiiy yaqinlik hissi bilan arzimas bog'lanishga ega edi.
+
+Klein o'zining g'ira-shira aksiga qarab, gangib pichirladi:
+
+— Keksa Neyl aytgan Astral Proyeksiyami?
+
+U bir necha soniya xotirjam turib, yana gumbazli shift ostidagi baland bronza stolli hashamatli ilohiy saroyni, shuningdek, turli yulduz turkumlariga mos yigirma ikkita baland suyanchiqli kursini gavdalantirdi.
+
+Klein xotirjam sharaf kursisi tomon yurib, tanasi va yuzini quyuqroq kulrang tumanga ko'mdi. O'ng qo'lini cho'zib, ikki tanish to'q-qizil yulduzni chertdi va mo''jizaviy bog'lanish yaratdi.
+
+
+# BOB 34: Bo'nak
+
+Hech qanday derazasi yo'q yer osti yerto'lasida, baquvvat Alger Uilson ustida turli asbob va echki terisidan pergamentlar turgan uzun stol yonida o'tirardi. Uning oldida yarim yongan sham bor edi. Xira, sarg'imtir olovning lipillashi narsalar va stol soyalarini sarobdek harakatlantirardi.
+
+Algerning sochi qoraga yaqin to'q-ko'k rangda, dengiz o'tlaridek to'zg'igandi. U chaqmoq naqshlari tikilgan to'n kiygandi. Qo'llarini bir-biriga chalishtirib, bosh barmoqlarini bir-biriga qaratgancha, shamning chap tomonidagi bir shisha qora suyuqlikka diqqatini qaratdi.
+
+Vushsh! Vushsh! Vushsh! Sharros! Sharros! Sharros! Germetik shisha ichidan dahshatli shamol yoki dengiz to'lqinlarining urilishi uvillardi. Qora siyoh cho'kmagan joylarda xira tuman aylanardi. Go'yo unga ko'z va og'iz o'sgandek edi.
+
+Alger boshini qiyshaytirib, devorda osilgan soatga ko'z tashladi va mil uchni urganini kuzatdi. U chakkasini bosdi, ko'zlari qoraydi. Stoldagi turli narsalardan maftunkor ranglar qalqib chiqdi.
+
+Shu lahzada u allaqayoqdan to'lqindek paydo bo'lgan to'q-qizil yorug'likni payqadi, u bir zumda uni cho'ktirdi!
+
+...
+
+Backlund, Malika mahallasi, Hall xonadonining hashamatli qarorgohi ichida.
+
+Raqs o'qituvchisini jo'natgach, Audrey eshikni qulflab, pardozlash stoli oldida tik o'tirdi. Tashqaridagi quyosh yorqin va go'zal edi. Nafis echki terisidan ishlangan, och jigarrang bir daftar bor edi. U ochiq turar va bo'm-bo'sh ekanini ko'rsatardi. Uning o'ng tomonida oltin uchli va la'l-yoqut o'rnatilgan perli ruchka bor edi.
+
+Audrey sinab ko'rib, Yig'inni tark etishi bilanoq perli ruchkani olib, formulani yoza olishiga ishonch hosil qildi.
+
+— Buni shu qadar orziqib kutyapmanki... — U hayajonli hissiyotlarini bosish uchun nafas oldi va lablarini cho'chchaytirib ko'zguga qaradi. Biroq u o'zining aksini ko'rmadi. Buning o'rniga, tanasidan to'q qizil va xayoliy bir nur otilib chiqdi!
+
+...
+
+Kulrang tuman ustida devning maskaniga o'xshagan ulug'vor ilohiy zal turardi. Bronza stolning ikki tomonida to'q qizil ranglar gulladi. Ular favvoradek yuqoriga otilib, so'ng shovillab tushdi. U avvalgi joylarda o'tirgan ikki g'ira-shira qiyofani "o'yib" chizdi.
+
+Mayin sariq sochli, baland bo'yli va nozik qomatli Audrey beixtiyor sharaf kursisi tomon qaradi. U quyuq kulrang tumanga ko'milib, orqaga suyanib o'tirgan qiyofani ko'rdi. Bir qo'li yassi holda stol chetiga tekkan, ikkinchi qo'li iyagini siypalardi.
+
+— Xayrli kun, Telba janob~! — baqirdi Audrey quvnoq ovozda. Shundan so'ng boshini burib, ro'parasidagi kishiga qaradi. Xuddi shu ohangda dedi: — Xayrli kun, Osilgan odam janob~!
+
+Bu xonim rostdan ham soddadil ekan. Men yaxshi odam ekanimga shunchalik aminmi? Nega unda biror qo'rquv yo'q? U yaxshi pana qilingan oliynasab xonimmikan? Klein jilmayib, tubsiz qiyofasini saqladi.
+
+— Xayrli kun, Adolat xonim. — Shunday derkan, boshini biroz quyi solib, chap qo'lini qimirlatib, qoshlari orasini ikki marta chertdi.
+
+Ko'rgani bir zumda o'zgardi. U Adolat va Osilgan odam o'z auralari ranglarini sochayotganini ko'rdi! Atrofdagi kulrang tuman va to'q qizil yulduzlar esa o'zgarmasdi. Mavjud bo'lmaydek tuyulgan narsalar yoki hayotga ega yarqiroq yog'dular ko'rinmadi.
+
+U nigohini ko'chirib, Adolatning aurasi keksa Neyl ta'riflagan ranglarga mukammal mos kelishini ko'rdi. Qizil, binafsha, ko'k yoki oq bo'lishi kerak bo'lgan joylar o'z ranglarida edi. Qolaversa, ular yarqiroq yog'duni saqlab, mos qalinlikda edi. Uning jonli, yosh qiz ekanini bilish oson edi.
+
+Uning hissiyot ranglari qizil va sariq. Bu — quvonch, jo'shqinlik va hayajon... Klein bir xulosa chiqarib, so'ng diqqatini Osilgan odam tomon qaratdi.
+
+Adolatdek, Osilgan odamning aura ranglarida ham hech qanday o'ziga xoslik yo'q edi. Uning hissiyotlari ko'k bo'lib, biroz to'q sariq aralashgandi. Xotirjam, o'ychan, ehtiyotkor va biroz mamnunmi? Bu uning birinchi urinishi bo'lgani uchun, Klein unchalik ishonchsiz xulosa chiqardi.
+
+Endigina nigohini olmoqchi bo'lganda, u birdan g'alati bir narsani angladi. Osilgan odamning aurasining eng ichki qatlami deyarli bir xil rangda edi! Klein diqqatini jamlab, yana sinchiklab qaradi. U Osilgan odamning Efir Tanasining teran qa'rida dengizdek to'q-ko'k rangni xira ilg'ay oldi. U to'lqinli bo'rondek edi.
+
+Uning Astral Proyeksiyasimi? Yoki Astral Proyeksiyasining yuzasi desam to'g'riroqmi? Ko'rinishidan, u rostdan ham Beyonder, qolaversa, ochiq-oydin keksa Neyldan kuchliroq. Klein tahlil qilarkan, miyasi savollarga to'ldi.
+
+— Shart emas. Bu o'ziga xos muhit bilan bog'liq bo'lishi mumkin. Faqat bu mening o'z hududim bo'lgani uchun keksa Neyl namoyon qilmagan bu narsalarni ko'ra olyapman. — U yana boshini Adolat tomon burib, bu faqat Beyonderlar ega bo'lgan xususiyat ekanini tasdiqladi.
+
+Shu payt Alger ham salomlashishni tugatdi. Audrey yengil nafas olib, intizorlik bilan so'radi:
+
+— Osilgan odam janob, Arvoh akulasi qoni qutisini oldingizmi?
+
+Alger Kleinga bir qarab, uning go'yo boshqa masalalar haqida o'ylayotgandek qoshlari orasini chertayotganini ko'rdi.
+
+— Katta rahmat. U kutganimga mukammal mos keldi. Sira kutmagandim, uni menga shu qadar tez jo'natasiz deb. Arvoh akulasi qoni odatiy g'ayrioddiy mavjudot emas, — dedi Alger ochiq-oydin.
+
+Audrey kamtarinlik bilan jilmayib dedi:
+
+— Bunday natijani ko'rganimdan juda xursandman.
+
+U yoshligidan sir-sinoatga oid har narsani yaxshi ko'rgani uchun, shunga o'xshash qiziqishli zodagonlar doirasidan do'st orttirgandi. Ular o'zaro ma'lumot, kitob va noyob artefaktlar almashardi. Ammo shu paytgacha ulardan birortasi ham chinakam Beyonder bo'lish uchun biror g'ayritabiiy kuch qo'lga kiritmagandi. Aksincha, bir necha shahzoda, agar ularning malika xotini bo'lsa, istagan narsalarini sovg'a qilishi mumkinligini ishora qilgandi.
+
+Biroq u Arvoh akulasi qonini to'g'ridan-to'g'ri oilasining xazinasidan olgandi. Axir, ro'yxatda faqat "bir katta shisha" deb yozilgan, necha millilitr yoki qancha to'la bo'lishi kerakligi aytilmagandi, shu bois u bir ozini quyib olsa, bilinmaydi deb ishongandi. Hatto biror tasodif bo'lib, masala fosh bo'lsa ham, ota-onasi buni surishtirmasdi.
+
+Alger tumanga burkangan Telbaga teran qaradi, so'ng jilmayib boshini qaytarib burdi.
+
+— Kelishuvimizga ko'ra, men senga Tomoshabin iksiri formulasini aytaman.
+
+— O'zimni tayyorlab olay. Mayli, boshlang. — Audrey nafas olib, butun diqqatini jamladi.
+
+— Past Sequence iksirlarini tayyorlash juda oson. Faqat men beradigan tartibga amal qiling. Esda tuting, masalliqlardan kamroq bo'lishi mumkin, ammo ko'proq bo'lmasligi kerak. Bu katta muammolarga sabab bo'ladi. Beyonderlarning nazoratini yo'qotishi haqidagi xabarlarni eshitgan bo'lsangiz kerak. Buni takrorlashimga hojat yo'q deb o'ylayman? — Alger avval e'tibor berish kerak bo'lgan narsalarni tilga oldi.
+
+Audrey yengilgina bosh irg'ab dedi:
+
+— Butunlay tushunaman. — Gapirar ekan, u boshini burib, Telba janobga qaradi. U sirli ilm mutaxassisi biror narsa qo'shadimi-yo'qmi bilmoqchi edi; afsuski, Telba u yerda haykaldek jimgina o'tirardi.
+
+Alger bir oz o'ylab dedi:
+
+— Kamroq bo'lishi juda farq qilishi kerak degani emas... Agar yordamchingiz bo'lmasa, kimyo tajribasi bilan tanishishga biroz vaqt sarflashingizni maslahat beraman.
+
+— Bunaqa ishlar uchun mende oilaviy repetitor bor, — javob berdi Audrey og'irligini sezmay.
+
+Alger og'ishning eng oxirgi chegarasini tilga olgach, juda ravon yoddan o'qidi:
+
+— Tomoshabin. Sequence 9 iksiri. 80 millilitr sof suv. 5 tomchi kuzgi krokus mohiyati. 13 gramm sigir tishi paeonol kukuni. 7 ta elf guli bargi. Bir yetuk Manhal balig'ining ko'z olmasi. 35 millilitr echki shoxli qora baliq qoni qo'shing.
+
+— So'nggi ikkitasi asosiy masalliq. Ular dengizdagi g'ayrioddiy mavjudotlar. Ehtiyot bo'lishingiz kerak.
+
+— Mayli. — Audrey eslab, takrorladi: — 80 millilitr sof suv. 5 tomchi kuzgi krokus mohiyati, 13 gramm sigir tishi...
+
+— Paeonol kukuni, — eslatdi Alger.
+
+Uning yordami bilan Audrey asta-sekin va aniq tarzda formula tartibini yodladi. Biroq u tashvishlanganga o'xshar, qayta-qayta uni pichirlardi.
+
+— Tafakkurni bilasizmi? — Alger Adolatning bosh irg'aganini ko'rib davom etdi: — Tafakkur haqida qanchalik bilishingizni bilmayman. Bir bor ta'riflab beray... Iksirni iste'mol qilgandan keyin, ruhiyatingiz va energiyangizni nazorat qilish uchun darrov Tafakkurni boshlang... Iksir kuchlarini chinakam egallash uchun har kuni mashq qilishni unutmang. U ramzlovchi ma'noni va yanada ko'proq sirini qazib oling. Shunday qilib, nazoratni yo'qotish xavfidan eng katta darajada qochasiz. Iksirning ma'nosi esa asosan uning nomida — masalan, Tomoshabin!
+
+Klein suhbatni jimgina tinglab, gapga aralashish niyati yo'q edi. Faqat yashirin yodlar va o'rganar, ammo buni eshitganda, birdan bir o'y keldi.
+
+Audrey Osilgan odamning tushuntirishlarini diqqat bilan tingladi va endigina biror batafsilroq narsa so'ramoqchi bo'lganda, birdan stoldagi chertish tovushini eshitdi. U va Alger boshlarini burib, Telbaga qarashdi. Ular sirli va qudratli qiyofa barmoqlari bilan yengilgina chertayotganini ko'rishdi.
+
+U teran ovozda dedi:
+
+— Gap ularni egallashda emas, balki hazm qilishda.
+
+— Gap kashf etishda emas, balki rol o'ynashda.
+
+— Iksir nomi shunchaki ramz emas, balki tasvir hamdir. U hazm qilishning kalitidir.
+
+Audrey buni eshitib gangib qoldi. U Telba janob nima demoqchi ekanini unchalik tushunmadi. Beixtiyor ko'z qiri bilan Osilgan odamning munosabatini kuzatdi. U cho'chib qotib qolganini ko'rib hayratga tushdi. Go'yo oddiy odam baland va to'satdan momaqaldiroq gumbirini eshitgandek edi.
+
+— Hazm qilish, rol o'ynash... Hazm qilish, rol o'ynash... Hazm qilish, rol o'ynash, kalit... — Alger uni qayta-qayta ohista takrorladi, go'yo asosiy bir tushunchani ilg'agan yoki g'alati bir la'natga giriftor bo'lgandek. Bir ozdan keyin u boshini ko'tarib, bo'g'iq ovozda dedi: — Rahmat, Telba janob. Sizning ishorangiz hayotimchalik qimmatli. Siz meni juda yoritdingiz. Albatta, men hali uni to'la tushunib yoki anglab yetmagandirman.
+
+Klein sirli va tubsiz qiyofasini saqlab, jilmayib dedi:
+
+— Bu — bo'nak edi.
+
+Aslida, u aytilgan gapning aniq ma'nosini chindan tushunmagandi. U faqat imperator Roselle odatiy Beyonderdan kuchliroq va Osilgan odamdan zo'rroq ekaniga amin edi.
+
+Bo'nak... Audrey Osilgan odamning munosabatiga qarab, avvalgi ishora qimmatli ekanini bildi. Uni mulohaza qilarkan, so'radi:
+
+— Telba janob, bizdan nima qilishimizni istaysiz?
+
+Ro'parasidagi Alger bosh irg'ab dedi:
+
+— Bizga qanaqa ishni ishonib topshirmoqchisiz?
+
+Klein biroz orqaga suyanib, ikkalasiga bir nazar tashladi, so'ng mayin va yoqimli ovozda dedi:
+
+— Mening nomimdan Roselle Gustavning maxfiy kundaligini to'plang, hatto uning bir sahifasini bo'lsa ham.
+
+
+# BOB 35: Ma'lumot Almashinuvi
+
+Roselle Gustavning maxfiy kundaligi? Imperator Roselle? Haqiqatan, faqat shunaqa narsalargina Telba janobdek qudratli zotning e'tiboriga loyiq... Audrey avval esankiradi, so'ng buni hayratlanarli emasligini angladi. Mish-mishlarga ko'ra, imperator Roselle bir paytlar Kufr lavhasini ko'rgan ekan. Aytishlaricha, u yaratgan maxfiy kartalar ilohiylikning yigirma ikki yo'lini yashirgan ekan. Bu har bir yuqori Sequence Beyonderi, albatta, e'tibor beradigan narsa edi!
+
+— Kundalik? Bu kundalikmi? — Alger qoshini biroz chimirib, bu mayda ma'lumotni o'tkir payqadi. Roselle Gustav qoldirgan narsani Telba janob kundalik deb ta'rifladi! U buni qayoqdan biladi? Buni qanday aniqladi? U Rosellening sirli matnini ochish yo'lini bilarmikan?
+
+Osilgan odamning savoliga ro'baro' bo'lib va istalgan natijaga erishgan Klein stuliga suyanib, qo'llarini bir-biriga chalishtirdi. Bemalol javob berdi:
+
+— Hozircha uni kundalik deb bilaylik.
+
+U na inkor etdi, na tasdiqladi.
+
+Audrey boshqa zodagonlarning bolalari bu masalani tilga olganini eshitgandi. Biroq u bu haqda chindan ko'p narsa bilmasdi. Qiziqishi uyg'onib, so'radi:
+
+— Aytishlaricha, imperator Rosellening, xo'sh, kundaligi o'zi ixtiro qilgan sirli til yoki ramzlarda yozilgan ekan.
+
+— Ha, — javob berdi Alger sodda qilib. — Ba'zilar bu sirli ilmning o'ziga xos ramzlar to'plami deb hisoblaydi. Boshqalar uni iyeroglif deb biladi. Ammo shu kunga qadar hech kim uni ochishning to'g'ri yo'lini topmagan. Hech bo'lmasa, men bilgani shu.
+
+Shunday derkan, u tasdiq olish yoki shubhasini bildirish maqsadida boshini Klein tomon burdi.
+
+Ular avlodlar davomida o'tib kelgan matnlar, shu bois asl holatida emas. Sizning fikr yo'nalishingizga ko'ra, uni qanday ocha olardingiz... Klein xotirjamligini saqlab, ichida o'zini mazax qilgancha kuldi. Sirli ilm ramzlari bilan qanday ish ko'rishga kelsak, u darrov bema'ni va kulgili bir sahnani tasavvur qildi.
+
+Qora uchli qalpoq va uzun to'n kiygan yovuz bir sehrgar yengini shimarib, qo'liga tatuirovka qilingan ramzni ochib ko'rsatadi. Aytishlaricha, bu imperator Roselle qoldirgan sirli kuchga ega ramz emish. U ikkita ko'k, katta soddalashtirilgan xitoy iyeroglifida yozilgan: "Tentak Masxaraboz!"
+
+Kleinning og'zi cheti sekin yuqoriga ko'tarildi, kayfiyati chog' bo'ldi.
+
+Osilgan odamning ta'rifini eshitgach, Audrey dovdirab dedi:
+
+— Biz ramzlarni ham, so'zlarni ham tushunolmaymiz... Unda ma'lumotni sizga qanday yetkazamiz, Telba janob? Yoki biror yerga pochta orqali jo'natamizmi?
+
+Bu ancha muhim savol... Mende biror narsani yashirin qabul qilish vositasi yo'q... Klein javob berishga shoshilmadi. Bir-biriga chalishtirilgan qo'llaridan bosh barmoqlarini qayta-qayta ajratib, so'ng yana qaytarib qo'shdi.
+
+Tez orada u bir yechim topdi. Bu yerda o'z xohishimga ko'ra ilohiy saroy va stol yarata olar ekanman, shu yerda mazmunni boshqalarning ongiga proyeksiyalash mumkinmikan? Sinab ko'raman...
+
+Shu payt Audrey va Alger Telba janob quyuq kulrang tuman orasidan sekin tik o'tirganini ko'rishdi.
+
+— Adolat xonim, keling, bir sinab ko'raylik. Bir parcha matnni tasavvur qiling va unga shoshilinch yozish hissini bering. Ha, yoningizdagi perli ruchkani olib, qog'ozga yozing.
+
+Klein gapini tugatmasidanoq, Audrey oldida sarg'imtir-jigarrang echki terisidan pergament va to'q qizil perli ruchkani ko'rdi. U perli ruchkani ham qiziqsinib, ham shubhalanib oldi. Ko'rsatmaga ko'ra, u imperator Roselle bir paytlar yozgan she'rni tasavvur qildi:
+
+"Qish kelsa, bahor naqadar yiroq bo'la olar?"
+
+Matnni sinchiklab ko'rgach, perli ruchkani olib, ularga proyeksiyalash istagini singdirdi.
+
+Klein bu hissiyotni sezdi va perli ruchkani vosita qilib, unga yo'l ko'rsatdi. Audrey perli ruchkani qog'ozga tekkizgan zahoti, echki terisidan pergamentda bir satr paydo bo'lganini ko'rdi.
+
+"Qish kelsa, bahor naqadar yiroq bo'la olar?"
+
+— Ma'budam, naqadar maftunkor! — xitob qildi Audrey hayrat va afsus ichida. Shundan so'ng biroz qo'rqa-pisa Kleinga qaradi.
+
+— Telba janob, men o'ylayotgan narsani o'qiy olasizmi?
+
+— Yo'q, men faqat sizga yo'l ko'rsataman, xolos. Yozish jarayonini sizga soddalashtirib, uni izga aylantirdim. Agar ifoda etishni istamasangiz, hech narsa paydo bo'lmaydi, — tinchitdi Klein past ohangda.
+
+— Shundaymi... Unda biz faqat ramzlar yoki sirli matn ko'rinishini yodlab, so'ng uni xohlaganimizdek bevosita taqdim eta olamiz? — Audrey yengil nafas olib, anglagan ohangda so'radi.
+
+— Ha, — javob berdi Klein. — Bu yomon usul emas. Adolat xonim, xotirangizga shubha qilmang. Tomoshabin bo'lganingizdan keyin, bu jihatda katta yaxshilanishga ega bo'lasiz.
+
+Alger urinishni chetdan kuzatib, Telba o'zi tasavvur qilganidan ham qudratliroq va sirliroq ekanini to'la angladi. Xotirasiga kelsak, u keyingi ko'tarilish uni yetarlicha yaxshilaydi deb ishondi.
+
+Bu borada Audrey quvonch bilan bosh irg'adi.
+
+— Bu eslatma bilan meni xursand qildingiz. Osilgan odam janob, Tomoshabinlar haqida yana biror yo'l-yo'riqingiz bormi? — Shunday derkan, u sharaf kursisi tomon qaradi. — Telba janob, men sizning vazifangizni bajarishga jon kuydiraman. Imperator Rosellening maxfiy kundaligidan ko'proq to'plashga harakat qilaman.
+
+— Avval aytdim, men halol va teng almashinuvni yaxshi ko'radigan odamman. Men bergan bo'nak har biringiz uchun kundalikning ikki sahifasiga teng, xolos. Ko'proq bo'lsa, evaziga qo'shimcha beraman, — dedi Klein xotirjam, go'yo bolalardan foyda undirmaydigan kattalardek.
+
+Qo'shimcha to'lov qayerdan kelishi mumkinligiga kelsak, u, tabiiyki, yangi qo'lga kiritilgan imperator Roselle kundaligi sahifalaridan kelardi. Bu sog'lom bir aylanma hosil qilardi.
+
+— Siz rostdan ham saxiy janob ekansiz. — Alger bir necha soniya jim turgach, qo'lini ko'kragiga qo'yib, yengilgina ta'zim qildi. Ta'zimdan so'ng Adolatga o'girilib dedi:
+
+— Yana bir bor ta'kidlay. Tomoshabin abadiy faqat tomoshabin bo'lib qoladi.
+
+— Bilaman, ko'plab Tomoshabinlar o'zlarini bosh qahramon yoki boshqa personaj deb tasavvur qilishni yoqtiradi. Natijada, ular dramaga ko'p hissiyot sarflaydi, hatto uning tufayli yig'laydi, kuladi, g'azablanadi va qayg'uradi. Biroq Tomoshabin shunday qilmasligi kerak.
+
+— Jamiyatning turfa dramalariga va bilib yoki bilmay ma'lum personajlar rolini o'ynayotgan kishilarga ro'baro' bo'lganda, siz mutlaq chetdan kuzatuvchi qiyofasini saqlashingiz kerak. Faqat shundagina ularni xotirjam va xolisona kuzata olasiz. Ularning odatlarini, yolg'on gapirgandagi qiliqlarini yoki asabiylik isini kashf etasiz. Shu mayda ip uchlaridan ularning chinakam o'y-fikrini ilg'aysiz.
+
+— Ishoning, har kim o'z hissiyotlari tufayli o'zgacha. Ular turli "narsalar" va turli hidlar ajratadi. Biroq faqat chinakam Tomoshabingina uni iskab ola oladi.
+
+— Bir bor haddan ortiq hissiyotingizni sarflasangiz, kuzatuvingiz ta'sirlanadi. Boshqalarning hissiyotlariga nisbatan sezgirligingiz og'adi.
+
+Audrey diqqat bilan tingladi, ko'zlari asta-sekin yondi.
+
+— Bu rostdan ham, rostdan ham qiziqarli eshitilyapti!
+
+Buni eshitib, Kleinning yuragida bir narsa qo'zg'aldi. Tomoshabin iksirining talabi xulosa qilinganda go'yo "mutlaqo xolis va betaraf tomoshabin" bo'lib chiqdi. Ma'lum ma'noda, u rol o'ynashga teng edi...
+
+Rol o'ynashmi? Imperator Roselle nazarda tutgan "rol o'ynash" shumi? Unda men Ko'ruvchi rolini o'ynashim, shundan boshlab iksirni sekin-asta hazm qilishim kerakmi?
+
+Klein o'yga botgan paytda, Alger Tomoshabin haqida bilgan talablarini tushuntirib bo'ldi. U xo'rsinib dedi:
+
+— Boshqa narsa yo'qqa o'xshaydi-ya?
+
+— Balki beg'amgina suhbatlashsak bo'lar. Atrofimizda yuz berayotgan narsalar haqida gaplashsak. Ehtimol, bu siz uchun juda oddiy narsadir, ammo boshqalarning qulog'iga u juda muhim ip uchi bo'lishi mumkin.
+
+— Mayli. — Klein o'ziga kelib, yengilgina bosh irg'adi. U allaqachon Ko'ruvchi rolini o'ynashga urinishni rejalashtirayotgandi. Axir, bundan biror salbiy ta'sir yo'qqa o'xshardi.
+
+— Unda, sizdan boshlasak bo'ladimi, Osilgan odam janob? — rozi bo'ldi Audrey hayajon bilan.
+
+Alger bir oz o'ylab dedi:
+
+— O'zini general-leytenant Dyuivill deb ataydigan badnom qaroqchi Soniya dengizining sharqiy chekkasini kashf etish uchun yana sayohatini boshladi.
+
+— Voy? "Qora Lola" egasimi? — savol bilan qaytardi Audrey biroz o'ylab.
+
+— Ha, — javob berdi Alger bosh irg'ab.
+
+Men hatto u kimligini ham bilmayman... Klein jimgina tinglarkan, baham ko'rmoqchi bo'lgan xabar ustida bosh qotirdi. U o'zini fosh qilmaydigan, ayni paytda unga aks-sado olib keladigan narsa bo'lishi kerak edi. Tez orada u qaror qildi. Telba sifatidagi tubsiz qiyofasini saqlab, barmoqlari bilan bronza stol chetini siypaladi.
+
+— Bilishimcha, Sirli Tariqat Antigonus xonadoniga oid bir daftarni yo'qotgan.
+
+Bu xabar faqat Tingen shahridagi Tungi Lochinlargagina ma'lum emasdi. Sirli Tariqat, shuningdek, ular bilan yaqin aloqada bo'lgan Beyonderlar ham buni bilardi.
+
+— Antigonus xonadoni daftarimi? — takrorladi Alger, so'ng bosh chayqab jilmaydi. — Agar Abadiy Tun ma'budasi cherkovi buni bilib qolsa, qanaqa munosabat bildirar ekan, rostdan ham qiziqaman.
+
+Nega u Abadiy Tun ma'budasi cherkovini tilga oldi? Klein muammoni o'tkir sezdi, ammo so'rashi nojoiz edi. Bu uning sirli va teran Telba qiyofasini parchalab yuborardi.
+
+Shu payt Audrey qiziqsinib so'radi:
+
+— Nega qiziqyapsiz? Ma'buda cherkovi qanaqa o'ziga xos munosabat bildirardi?
+
+Alger jilmayib dedi:
+
+— Antigonus xonadonini Abadiy Tun ma'budasi cherkovi yo'q qilgan.
+
+— To'rtinchi Davr oxiridami yoki hozirgi davrning dastlabki bosqichidami yuz berganini aniq bilmayman.
+
+Bu... Kleinning qorachiqlari toraydi, butun vujudidan birdan sovuq o'tdi. Ko'rinishidan, Tungi Lochinlar bu Antigonus daftariga bergan qadr-qimmat mening tasavvurimdan ancha oshib ketadi! Ular meni Beyonder qilib tayinlash sababi — biroz hissa qo'shganim va menga xatardan saqlanish, ehtimol, arzimas sabablardir — ruhiy sezgirligimni oshirib, daftarni topishlariga yordam berishimni istashlari ekan. Buni Kapitan mendan yashirmagan. U buni tilga olgan, faqat men unchalik e'tibor bermagandim, xolos...
+
+Osilgan odamning tushuntirishini eshitgach, Audrey chuqur qiziqish bilan dedi:
+
+— Bunday narsa yuz beradi deb sira tasavvur qilmagandim...
+
+— Mayli, mening navbatim. Nima baham ko'rishimni o'ylab olay.
+
+U boshini qiyshaytirib, qo'li bilan iyagini tutgancha kulimsiradi.
+
+— Kecha odob o'qituvchim menga qanday hushdan ketishni o'rgatdi — qanday qilib nazokat bilan, hech qanday xatosiz hushdan ketishni. Bu xunuk vaziyatlardan yoki badjahl yigitlardan qochish uchun ijtimoiy tadbirlarda ishlatiladigan amaliy ko'nikma... He-he. Men shunchaki fikrlarimni tartibga solyapman. Aytmoqchi bo'lganim shuki, Balamning sharqiy sohilidagi jang muvaffaqiyatsiz tugaganidan beri, qirol, premyer va janoblar ulkan bosim ostida. Ular o'zgarishni jonidan ortiq istaydi.
+
+
+# BOB 36: Oddiy Savol
+
+Audrey otasi va akasi o'rtasidagi vaziyat haqidagi suhbatni eslarkan, o'z so'zlarini qo'shdi:
+
+— Ular hukumat tuzilmasi haddan tashqari betartib deb hisoblaydi. Har saylovda, hokimiyatdagi partiya o'zgarsa, yuqoridan pastgacha xodimlar almashadi. Bu hammasini to'palon qiladi va samaradorlikni nihoyatda pasaytiradi. U nafaqat jangda mag'lubiyatga sabab bo'ladi, balki fuqarolarga ham katta noqulaylik keltiradi.
+
+Klein yaxshi bilardiki, namuna bo'lmagani uchun, Loen qirolligi hali davlat xizmatchilarini imtihondan o'tkazadigan tizimga rivojlanmagandi. Siyosiy vaziyat hamon dastlabki bosqichida edi; shu bois har saylov g'alabasidan keyin, ko'plab lavozimlar a'zolar va tarafdorlarga ulashilardi.
+
+Hm, imperator Rosellening Intisda bunday muassasa tashkil etmagani fe'l-atvoriga mos kelmaydi... Hayotining keyingi davrida boshqa narsalarga diqqatini qaratganmikan?
+
+Osilgan odam — Alger buni eshitib, ohista kulib gapga aralashdi:
+
+— Hisoblashadi? Unda ularning hisobi biroz sustkash ekan. Ehtimol, ular qora chivinlar chaqqanidan bir yil o'tib qichishni his qilishadi.
+
+Qora chivinlar Loen qirolligining janubida yashaydigan jonzot edi. U nihoyatda zaharli bo'lib, zahri jabrlanuvchilarda terisini yirtib tashlash istagini uyg'otardi.
+
+Audrey kaftini cho'zib og'zini to'sdi. Osilgan odamning mazaxiga e'tibor bermay, aytganining asosiy mazmunini ifoda etdi:
+
+— Afsuski, ular bu tizimni almashtirishga hozircha yaxshi yechim topa olishmayapti.
+
+Klein diqqat bilan tinglab, mavzu o'zining mutaxassisligi sohasida ekanini his qildi. U xira jilmayib dedi:
+
+— Bu — oddiy muammo.
+
+Taomxo'rlar imperiyasi va uni o'rgangan ma'naviy tubanlikka yuz tutgan mamlakatlarda juda ilg'or muvaffaqiyat tajribasi bor edi.
+
+— Oddiymi? — savol bilan qaytardi Audrey gangib. Garchi uning ta'limiga siyosat kirmagan bo'lsa-da, u tez-tez otasi, akasi va atrofidagilarning muhokamalaridan eshitardi. Shunga o'xshash masalalarni yetarlicha tushunardi.
+
+Klein o'zini go'yo o'tgan kunlarning forumlarida turgandek his qildi. Vazminlik bilan dedi:
+
+— Imtihon — xuddi kollejga kirish imtihonidek. Omma uchun ochiq imtihon o'tkazing. Uni ikki yoki uch bosqichga bo'lsa bo'ladi. Elitani saralash uchun eng xolisona usuldan foydalaning.
+
+— Lekin... — Audrey bu qanaqa e'tirozga sabab bo'lishini bilardi.
+
+Fikrlarini tartibga solishga ulgurmasidan, Klein davom etdi:
+
+— Shundan so'ng, bu elitalardan Kabinet, okrug hokimiyati, shahar hokimiyati va turli shaharchalar lavozimlarini to'ldirishda foydalaning. Ha, masalalar bilan bevosita shug'ullanadigan lavozimlar, masalan, Kabinet kotibi.
+
+— Turli lavozimlar uchun turli talablar berilishi kerak. Ikkinchi yoki uchinchi bosqichlar joy va mintaqaga ko'ra sinovdan o'tkazilishi mumkin. Kasbiy masalalar kasb egalariga qoldirilsin.
+
+— Vazir, gubernator yoki mer kabi siyosiy lavozimlarga kelsak, ular saylovda g'olib chiqqan partiyalarga qoldiriladi. Bu — ular loyiq bo'lgan ulush.
+
+Bunday masalalarga qiziqishi bo'lmagan Alger beixtiyor boshini burib, diqqat bilan tingladi. Audrey qoshini biroz chimirib, chuqur o'yga botdi.
+
+— Hammani bir vaqtning o'zida almashtirishga shoshilishning hojati yo'q. Bunda Kabinet va davlat xizmatidagi turli idoralar shol bo'lib qoladi. Imtihonni har yili yoki har uch yilda o'tkazsangiz bo'ladi. Ularni asta-sekin almashtirsa bo'ladi. Oxir-oqibat, qirollikning kengayishi va maoshli davlat xizmatchilarining ishdan bo'shashi keltirib chiqaradigan bo'sh o'rinlarni hisobga olib, o'rinlarni tartibli ravishda taqsimlasangiz bo'ladi.
+
+Klein klaviatura siyosatchisi sifatidagi iqtidorini to'la namoyish etdi. So'ng kaftini tashqariga qaratib dedi:
+
+— Bunday tartib qirollikning idrokli elitalarini hukumatga olib keladi. Hokimiyatdagi partiya yoki vazir kim bo'lishidan qat'i nazar, davlat xizmati qirollikning asosiy va samarali ishlashini ta'minlaydi.
+
+Albatta, yon ta'siri — byurokratiya degan o'lmas iblisning tug'ilishi edi.
+
+Taklifni mulohaza qilarkan, Audrey shubha bilan so'radi:
+
+— Aytmoqchimisizki, o'sha vazirlar maymun bo'lib qolsa ham, ta'siri arzimas bo'lardimi?
+
+— Yo'q, — gapga aralashdi Alger birdan. — Menimcha, maymunlar hozirgi vazirlardan ko'ra yaxshiroq tanlov. — U to'xtab qo'shib qo'ydi: — Axir, maymunlarga faqat yeyish, uxlash va juftlashish kerak. Ular ahmoqona g'oyalar o'ylab topib, miyasiz loyihalarda turib olmaydi.
+
+Osilgan odam janob, sizning amaldoringiz juda dahshatli ko'rinadi-ya... Klein sharaf kursisida o'tirib, ichida kulgisi qistab bosh chayqadi.
+
+Audrey Telba janob taklif qilgan g'oyani mulohaza qilib, bir ozdan keyin hayrat bilan dedi:
+
+— Rostdan ham ishlashi mumkindek eshitilyapti...
+
+— Bu juda sodda, ammo samarali yechim!
+
+U Kleinga qarab chin dildan hayratlandi:
+
+— Telba janob, siz, albatta, hayotda juda tajribali, beqiyos zukko keksa zot bo'lsangiz kerak!
+
+...
+
+Kleinning og'zi cheti biroz uchdi, u bir necha soniya jim Osilgan odam va Adolatga qaradi.
+
+— Bugungi yig'inni shu yerda yakunlaylik.
+
+Agar Adolat xonim oilasiga ta'sir o'tkazib, bu masalada o'zgarish keltira olsa, men Bensonga oldindan yo'l ko'rsatib, unga davlat xizmatchisi bo'lish imkonini bera olardim. Sinchiklab o'ylasam, Benson rostdan ham bunday kasbga mos edi. Biroq Adolat buni o'z tashabbusi bilan qilishi dargumon. Chunki men va Osilgan odam buni qaysi zodagon taklif qilganini osongina aniqlab, uning kimligini taxminan bila olamiz. Albatta, u buni aylanma yo'l bilan yashirin qila olardi.
+
+— Irodangizga binoan. — Audrey va Alger birga o'rnidan turishdi.
+
+Klein biroz orqaga suyanib, bog'lanishni uzdi. U Adolat va Osilgan odamning xayoliy, g'ira-shira qiyofalari bir zumda parchalanib, tarqalganini ko'rdi.
+
+Kulrang tuman ustida, xudolar yashaydek tuyulgan hashamatli saroyda, bronza stolning to'rida jimgina o'tirgan yagona kishi — uning o'zi edi.
+
+Klein boshqa safargidek kulrang tumanga sho'ng'ib ketmadi. Chunki Beyonder bo'lganidan keyin uning ongi hamon yetarlicha tetik edi. Taro klubini erta tugatishining sababi — Tungi Lochinlarning Antigonus daftariga nisbatan chinakam munosabatini bilib olgani edi. U buni jiddiy izlashi va kun bo'yi uxlamasligi kerak deb qaror qildi. Aks holda Dunn Smit uning uydagi faoliyatiga shubha qilardi. Qolaversa, bu safar u anchagina manfaat ko'rgandi.
+
+Klein bronza stolning to'ridagi baland suyanchiqli kursida o'tirardi. Qo'llarini tirsak suyanchiqlariga qo'yib, barmoqlarini chalishtirgancha, cheksiz kulrang tumanni sinchiklab kuzatdi. U bu joyni go'yo o'n million yildan beri hech kim qadam qo'ymagandek osoyishta topdi.
+
+Osilgan odam va Adolatni chaqirish uchun bog'lanish o'rnatganda, u o'tkir bir narsani payqagandi. Bu shuki, Beyonder sifatida unda yana bir to'q qizil yulduzga teginish qobiliyati bor edi!
+
+— Bu yana bittasini chaqira olaman degani emasmi? — Klein o'sha hisni eslab, tasdiqlash uchun pichirladi.
+
+Biroq unda urinib ko'rish istagi yo'q edi, chunki yangi kelganning kimligi yoki qanaqa munosabatda bo'lishini bilmasdi. Axir, hamma ham Adolat yoki Osilgan odamdek emasdi — ular o'ziga xos fe'l-atvorga ega bo'lib, osongina moslashar va kerakli narsani olardi. Ular hatto masalalarni yashirishga ham tayyordek edi. Agar u Dunn Smitdek birovni tortib olsa, endigina tashkil etgan sirli tashkiloti bir zumda cherkov nazoratiga tushardi. "Yovuz" tashkilot boshlig'i sifatida uning kelajagi tashvishli bo'lardi.
+
+Klein kulrang tuman o'ziga xos ekanini bilardi. U buni Dunn Smit Sequenceidagi Beyonder ko'ra olmasligini bilardi. Ammo muammo shundaki, u Beyonder kuchiga ega ekan, xudolarning mavjudligini hisobga olishi kerak edi.
+
+Klein yetti pravoslav xudo voqelikda mavjud deb ehtiyotkorlik bilan ishonishni tanlagandi. Albatta, u bu xudolar shunchaki yuqori Sequence Beyonderlardan kuchliroq degan e'tiqodga ko'proq moyil edi. Qolaversa, ular qat'iy cheklovlar ostida edi. Hech bo'lmasa, Beshinchi Davrdan beri, bir necha bashoratdan tashqari, ular boshqa paydo bo'lmagandi.
+
+— He, odamlarni zo'rlab bu yerga tortish yaxshi ish emas. Hech kim biror tushunarsiz sabab bilan sir-sinoatga tortilishni istamaydi... Kelajakda ishlar qanday rivojlanishini kutib ko'raylik... — Klein xo'rsinib o'rnidan turdi. U ruhiyatini bo'shatib, tanasining mavjudligini sezdi. So'ng tez sur'atda pastga sho'ng'ishning og'ir hissiga taqlid qila boshladi.
+
+Ko'z oldidagi sahnalar o'zgardi. Kulrang tuman va to'q qizil bir zumda undan uzoqlashdi. Klein o'zini son-sanoqsiz suv pardalarini yirtib o'tib, oxiri haqiqiy olamni — zulmatdagi xonasini ko'rgandek his qildi.
+
+Bu safar u to'la uyg'oq edi va butun tajribani jiddiy o'zlashtirdi.
+
+— G'alati... Kulrang tuman bilan ruhiy olam o'rtasida ayrim farqlar bor... — Klein a'zoyi badanini qimirlatib, tanasining mavjudligini sezdi. Tajribani jiddiy o'ylab chiqqach, bosh chayqab, stolga bordi va pardalarni tortdi.
+
+Vushsh! Pardalar tortildi, quyosh nuri quyilib, xonani yoritdi.
+
+Chiqma deraza tashqarisidagi ko'chaga va u yoqdan-bu yoqqa o'tayotgan piyodalarga qarab, Klein chuqur nafas oldi va jimgina pichirladi:
+
+— Chiqib ishlaydigan payt keldi.
+
+— Ko'ruvchi rolini qanday o'ynashim kerak?
+
+— Buni shoshiltirib bo'lmaydi... Hozir qila oladiganim — faqat Ruhiy Ko'rishni ishlatish...
+
+...
+
+Backlund, Malika mahallasi.
+
+Audrey Hall ko'zguda o'ziga qaradi. Hayajondan yuzlari qizarganini va ko'zlari shu qadar yorqin ekanini ko'rdiki, ularga qarashga har kim qo'rqardi. U bularning birortasini ham tekshirmadi, shoshib esladi. La'l-yoqut qadalgan perli ruchkani olib, nafis echki terisidan pergamentga Tomoshabin iksiri formulasini yozdi.
+
+"80 millilitr sof suv. 5 tomchi kuzgi krokus mohiyati, 13 gramm sigir tishi paeonol kukuni. 7 ta elf guli bargi. Bir yetuk Manhal balig'ining ko'z olmasi. 35 millilitr echki shoxli qora baliq qoni."
+
+Uf... Audrey yengil nafas olib, xato qilmaganiga ishonch hosil qilish uchun uni bir necha bor o'qidi. Yana raqsga tushish istagi tug'ildi, ammo o'zini tiyishni eslatdi.
+
+Bir oz o'ylab, u iksir formulasi atrofiga turli kimyoviy nomlarni yoza boshladi. So'ng sahifani murakkab va tartibsiz kimyoga aylantirib qo'ydi.
+
+Ha, sinchiklab o'qimasa bas, buni shunchaki varaqlab ko'rgan odam shu yerda yashirgan tafsilotlarimni payqamaydi... Zo'r!
+
+Audrey o'zini maqtab, fikrini materiallarni qo'lga kiritishga qaratdi.
+
+— Avval bizda bor bir necha xazinani titkilab ko'raman. So'ng yetishmagan qismlarini boshqalar bilan almashishga urinaman...
+
+— Agar baribir hammasini to'play olmasam, faqat Osilgan odam yoki Telbadan yordam so'rashim mumkin... Evaziga nima taklif qila olaman?
+
+Bir oz o'ylab, Audrey daftarni yopib, kichik kitob javoniga qo'ydi. Shundan so'ng jadal eshik tomon yurib, uni ochdi. Tashqarida bir oltin retriver itoatkorona o'tirardi.
+
+Audreyning og'zi cheti qiyshayib, yorqin tabassum yuzaga keldi.
+
+— Syuzi, sen vazifani mukammal bajarding!
+
+— Gazetalardagi seriallarda detektivlarning ko'pincha qobiliyatli yordamchisi bo'ladi. Menimcha, chinakam Tomoshabinni qo'llab-quvvatlaydigan ulkan bir it bo'lishi kerak~
+
+...
+
+Faqat lipillagan sham bilan yoritilgan yer osti yerto'lasida Alger Uilson kaftini ko'tarib, unga sinchiklab qaradi.
+
+Ancha vaqtdan so'ng u xo'rsindi.
+
+— U hamon o'sha mo''jizaviy. Biror aniq tafsilotni umuman aniqlay olmadim...
+
+Yetarlicha tayyorgarlik ko'rgan bo'lsa-da, u Telba chaqiruvni qanday uddalaganini tushuna olmadi... Nigohini pastga tushirib, oldidagi stolda turgan echki terisidan pergamentga qaradi. Sarg'imtir-jigarrang pergamentning sarlavhasida to'q-ko'k siyoh bilan bitilgan bir Hermes jumlasi bor edi.
+
+"7. Dengiznavard."
+
+
+# BOB 37: Klub
+
+Tushdan keyingi jazirama quyosh ostida Klein uyidan chiqdi. Temir Xoch ko'chasidan Uelchning uyiga qadar piyoda yurishi kerak bo'lgani uchun, silindr shlyapa va charm etikli rasmiy kiyimi o'rniga zig'ir ko'ylak kiydi. Unga mos qo'ng'ir palto, dumaloq namat qalpoq va eski charm tufli kiydi. Shunday qilib, terining badbo'y hidi ancha qimmat kostyumni ifloslantirishidan tashvishlanmasligi mumkin edi.
+
+Nargis ko'chasi bo'ylab tushib, Temir Xoch ko'chasi tomon yurdi. Burchakdagi maydon yonidan o'tarkan, beixtiyor bir ko'z tashladi. Chodirlar allaqachon g'oyib bo'lgandi. Avvalgi sirk truppasi tomoshasini tugatib, ketib qolgandi.
+
+Klein avval unga bashorat qilishga yordam bergan hayvon o'rgatuvchini yashirin bir bilimdon deb tasavvur qilgandi. U undagi o'ziga xos biror narsani payqab, unga atayin yo'l ko'rsatish uchun paydo bo'lgan va kelajakda u bilan uchrashib, ishoralar berishi mumkin deb ishongandi. Biroq bularning birortasi ham yuz bermadi. U sirk truppasi bilan birga sayohatning keyingi to'xtash joyiga jo'nab ketgandi.
+
+Bunchalik bayog'i sahnalar qayoqdan bo'ladi deysiz... Klein bosh chayqab, yuzini bujmaytirib jilmaydi. U Temir Xoch ko'chasi tomon burildi.
+
+Temir Xoch ko'chasi shunchaki bitta ko'cha bilan tavsiflanmasdi. Nomi aytib turganidek, u bir-birini kesib o'tgan ikki yo'ldan iborat edi. Chorrahani markazga olib, u Chap ko'cha, O'ng ko'cha, Yuqori ko'cha va Quyi ko'chaga bo'linardi. Klein, Benson va Melissa avval Quyi ko'chada yashashgandi. Biroq uning sobiq kvartirasi va atrofida yashovchilar bu hududni Quyi ko'cha deb o'ylamasdi. Buning o'rniga, ular O'rta ko'cha atamasini o'ylab topishgandi. Shu yo'l bilan ular bu yerda yashovchilar bilan ikki yuz metr narida — bir yotoqxonada besh-olti, goho hatto o'ngacha odam yashaydigan kambag'allar o'rtasiga aniq chegara qo'yishgandi.
+
+Klein Chap ko'cha chetidan yurib, xayoli bilan band edi. Antigonus xonadoni daftarini va uning yo'qolib qolganini esladi. Uning Tungi Lochinlar uchun muhimligi va u keltirib chiqargan o'limlarni o'yladi. Yuragi asta-sekin og'irlashib, yuzi xira tortdi.
+
+Shu payt tanish bir ovoz yangradi.
+
+— Bola.
+
+Voy... Klein qiziqsinib boshini burdi va o'zini Smyrin novvoyxonasi kirish joyida ko'rdi. Kulrang sochli Vendi xonim qo'l silkitib, iliq tabassum bilan unga salom berardi.
+
+— Sen unchalik... xursand emasga o'xshaysan? — so'radi Vendi mehribonlik bilan.
+
+Klein yuzini ishqalab dedi:
+
+— Bir oz.
+
+— Tashvishlaring qanaqa bo'lmasin, ertangi kun baribir keladi, — dedi Vendi xonim jilmayib. — Mana, men yangi yaratgan shirin muzli choyni tatib ko'r. Mahalliylarning didiga mos keladimi-yo'qmi bilmayman.
+
+— Mahalliylar? Siz ham mahalliylardan emasmisiz, Smyrin xonim? — Klein kulgisi qistab bosh chayqadi. Tatib ko'rish bepul degani-da, a?
+
+Vendi Smyrin iyagini biroz ko'tarib dedi:
+
+— To'g'ri topding. Aslida men janublikman. Erim bilan Tingenga kelgandim, ammo bu qirq yildan ortiq vaqt avval edi. He-he, o'shanda Benson hali tug'ilmagandi. Hatto ota-onang ham bir-birini tanimasdi. Men doimo shimolliklarning ovqat didiga biroz ko'nika olmaganman va doimo tug'ilgan yurtimning taomlarini qo'msayman. Cho'chqa kolbasalari, kartoshkali non, qovurilgan quymoqlar, cho'chqa yog'ida qovurilgan sabzavotlar va maxsus souslar bilan qovurilgan go'shtni qo'msayman.
+
+— Voy, shirin muzli choyni ham qo'msayman... — Klein buni eshitib jilmaydi. — Smyrin xonim, bu rostdan ham odamni ochiqtiradigan mavzu ekan... Lekin o'zimni ancha yaxshi his qilyapman. Katta rahmat.
+
+— Mazali taom doimo qayg'uni davolaydi. — Vendi unga bir piyola qo'ng'ir-qizil suyuqlikni uzatdi. — Bu men xotiramga ko'ra tayyorlagan shirin muzli choy. Tatib ko'r va yaxshimi-yo'qmi ayt.
+
+Unga rahmat aytib, Klein bir ho'pladi va uni Yerdagi muzli qora choyga o'xshash topdi. Biroq u unchalik qo'zg'atuvchi emasdi. Choy ta'mi kuchliroq va tetiklashtiruvchiroq edi. U yondirayotgan quyosh keltirgan issiqni bir zumda quvib chiqardi.
+
+— A'lo! — hayratlandi u.
+
+— Bu meni xotirjam qildi. — Vendi ko'zlarini qisib jilmaydi va uning bir piyola choyni mehribonlik bilan ichib bo'lishini kuzatdi.
+
+Smyrin xonim bilan ko'chish haqida suhbatlashgach, Klein o'zi eng yaxshi taniydigan ko'chaga qaytdi. Tushdan keyin ko'cha bo'yidagi savdogarlar ancha kam edi. Ular yana soat besh yarimda yig'ilardi. Qolganlari uyqusirab, holsiz ko'rinardi.
+
+Hududga kirgan zahoti, Kleinning yuragini birdan zulmat bosib oldi. Yuragi tushunarsiz sabab bilan og'ir, tushkun va ma'yus bo'lib qoldi.
+
+Nima bo'lyapti? U o'zida bir balo borligini o'tkir sezdi. Darrov to'xtab, atrofini kuzatdi, ammo hech qanday g'alati narsa ko'rmadi.
+
+Bir oz o'ylab, Klein qo'lini ko'tarib, go'yo o'ylayotgandek qoshlari orasini chertdi. Ko'rish doirasi darrov o'zgardi. Savdogarlar va piyodalarning auralari paydo bo'ldi.
+
+Klein ularning sog'liq ranglarini kuzatishga ulgurmasidan, diqqatini ma'yuslikni ifodalovchi ranglar o'ziga tortdi. U kuzatilayotganlarning aniq o'y-fikrlarini aniqlay olmasdi, ammo umidsiz, loqayd va ma'yus taassurot uning yuragiga chuqur o'yib o'rnashdi.
+
+Atrofni ko'zdan kechirarkan, u hatto quyosh ham o'sha to'q ranglarni tarqata olmasligini angladi. Bu yillar davomidagi bostirishdan ularga singgan bir ma'yuslik edi.
+
+Buni ko'rib, Klein darrov sababni tushundi. Keksa Neyl aytganidek, Ruhiy Ko'rishni ishga tushirish uni notanish muhitga osongina tortar va noqulay his qildirardi. O'zining boshqalarning hissiyotidan osongina ta'sirlanishi ham oson edi.
+
+Shunga o'xshash tamoyil sezgi kabi qobiliyatga ham qo'llanardi. Bu u Ko'ruvchi bo'lganidan keyin qo'shimcha mashqsiz qo'lga kiritgan qobiliyat edi. Bu rad etib bo'lmaydigan passiv bir sezgi edi. U unga har qanday g'ayrioddiy narsaning mavjudligini bevosita sezish imkonini berardi.
+
+Narsalarni sezganda ma'lum darajada o'zaro ta'sir bo'lishi tayin edi; shu bois Ruh Mediumidek kishining Beyonder ko'ziga har kimning sezgi quvvati aniq ko'rinardi. U tundagi olovga o'xshardi. Shu bois yuqori sezgili odamlar har qanday g'ayrioddiy narsaning kuchli muhitidan tabiiy ravishda ta'sirlanardi. Bunday oqibatlarni faqat qayta-qayta mashq qilib egallash, nazorat qilish va moslashish mumkin edi.
+
+— Bunday bostirilgan rang, ehtimol, uzoq vaqt davomida shakllangandir-a? — Klein xo'rsinib bosh chayqadi, biroz ta'sirlandi. U yana qoshlari orasini ikki marta chertib, ruhiyatini jamlashga zo'r berdi.
+
+Tak. Tak. Tak. Klein kvartira tomon yurib, biror g'ayrioddiy mavjudot yoki mitti bog'lanishlarni sezishga harakat qildi, ayni paytda "u" yashirgan Antigonus xonadoni daftarini ham izladi.
+
+Ko'chalar odatdagidek edi. Ko'chalarda iflos suv va axlat bor edi. U faqat kvartira kirish joyiga yetganda tozalandi.
+
+Klein yarim ochiq eshikni itarib ochib, quyosh nuri yetib bormaydigan zulmatda birinchi qavatni aylanib chiqdi. Yog'och zinalar u ko'tarilarkan, muttasil g'ijirlardi.
+
+Ikkinchi qavat odatdagidek xira edi. Klein sezgisini bo'shatib, zulmatga qaradi. Biroq u nafaqat daftari haqidagi biror ip uchini topa olmadi, balki birorta ko'rinmas ruhiy tanani ham ko'ra olmadi.
+
+— Agar ularga duch kelish shunchalik oson bo'lganda, ko'pchilik oddiy odam allaqachon g'ayrioddiy narsalarning mavjudligini sezgan bo'lardi... — Klein o'yga botib xo'rsindi. U allaqachon ko'pchilik "ruhlar" ruhiy tana shaklida emas, balki ruhiyat shaklida mavjudligini tushungandi. Faqat Ruh Mediumigina ular bilan samarali muloqot qila olardi.
+
+Uchinchi qavatni bir bor aylanib chiqqach, Klein kvartirani tark etib, xotirasi izlari bo'ylab Uelchning uyi tomon yurdi.
+
+U to'la bir soat yurdi, ammo yo'lda hech narsa topmadi. Bog'li uy oldida turib, Klein qulflangan temir darvoza orqali binoga qarab o'ziga o'zi pichirladi:
+
+— Uelchning uyini tintishimga hojat yo'q-a? Kapitan va Deyli xonim joyni gilamdek titib chiqishgan bo'lsa kerak...
+
+— Qolaversa, mende kalit yo'q. Mendan devorga tirmashishni kuta olishmaydi-ku...
+
+— Ertaga boshqa yo'ldan urinib ko'raman...
+
+— Bugun shuncha yurdim-u, lekin qadam sanagich reytinglari ham yo'q...
+
+Masxaralarkan, Klein yaqindagi mahallaga qaytdi. U jamoat aravasida Blackthorn Qo'riqlash Kompaniyasiga borib, kundalik o'ttizta o'qini olmoqchi edi. U vaqtidan foydalanib, mashq qilishi kerak edi. Ko'ruvchining tez va samarali hujum vositasi yo'qligini faqat revolveri va hassasi bilangina qoplasa bo'lardi!
+
+Uelchning uyi atrofidagi mahalla nisbatan toza edi. Toza va yorqin oynali do'konlar ko'chaning ikki tomonida tizilgandi. Ko'cha burilishida, Klein endigina arava bekatini qidirmoqchi bo'lganda, nigohi ikkinchi qavatdagi bir necha taxtachaga tushdi.
+
+— "Harrods" Univermagi.
+
+— Harbiy Faxriylar Oshxonasi.
+
+— Bashorat Klubi.
+
+...
+
+Bashorat Klubi... Klein nomni jimgina takrorlab, Ko'ruvchi rolini "o'ynashi" kerakligini esladi.
+
+Ha, bir ko'rib qo'yishim kerak... yangi g'oyalar izlashim kerak...
+
+Chalkash o'ylar ichida Klein ko'chaning narigi tomoniga o'tib, ikkinchi qavatga chiqdi. Bosh dahlizga kirib, go'zal bir ayol xizmatchini ko'rdi. Qo'ng'ir-sariq sochini o'rab olgan ayol Kleinni ko'zdan kechirib, jilmayib dedi:
+
+— Janob, taqdiringizni aytdirmoqchimisiz yoki klubimizga a'zo bo'lmoqchimisiz?
+
+— Kirish shartlari qanaqa? — so'radi Klein beg'amgina.
+
+Ayol o'ziga juda tanish tarzda tushuntirdi:
+
+— Ma'lumotlaringizni to'ldirasiz va yillik a'zolik haqini to'laysiz. Birinchi yili besh funt, keyingi yillari yiliga bir funt. Xavotir olmang, biz siyosiy yoki ishbilarmonlik klublaridek emasmiz — ularda rasmiy a'zolar tavsiyasi bilangina kirsa bo'ladi.
+
+— A'zolar klubning yig'ilish xonasi va turli bashorat xonalari hamda asboblaridan bemalol foydalana oladi. Biz beradigan qahva va choydan bahramand bo'lib, biz obuna bo'lgan gazeta va jurnallarni bepul o'qishi mumkin. Tushlik, kechki ovqat va spirtli ichimliklarni tannarxida, shuningdek, o'quv materiallari va bashorat uchun kerakli materiallarni ham sotib olishi mumkin.
+
+— Bundan tashqari, biz har oy kamida bir mashhur folbinni ma'ruza o'qishga taklif qilamiz — har qanday savolga javob berish uchun.
+
+— Eng muhimi, siz bir xil qiziqishli bir to'da do'st topib, ular bilan fikr almasha olasiz.
+
+Ancha yaxshi eshitilyapti, lekin... mende pul yo'q... Klein o'zini mazax qilgandek jilmayib so'radi:
+
+— Unda taqdirimni aytdirmoqchi bo'lsam-chi?
+
+
+# BOB 38: Havaskor Yangi
+
+Kleinning savolini eshitib, qo'ng'ir-sariq sochini nafis o'rab olgan go'zal ayol sabri tugaganga o'xshardi. Biroq u tabassumini saqlab dedi:
+
+— A'zolarimiz klubda boshqalarga bemalol bashorat qila oladi. Ularning ham narxlari bor, biz juda kichik ulush haq olamiz. Taqdiringizni aytdirmoqchi bo'lsangiz, mana bu albomga qarashingiz mumkin. Unda boshqalarga bashorat qilishga tayyor a'zolarning tavsifi va narxlari bor.
+
+— Biroq bugun dushanba kuni tushdan keyin, shu bois ko'pchilik a'zolarimiz ish bilan band. Bugun bu yerda atigi beshtasi bor...
+
+Klubni tanishtirarkan, u Kleinni qabulxona zalidagi deraza yonidagi divanga o'tirishga taklif qildi. So'ng albomni varaqlab, hozirgi klub a'zolarini ko'rsatdi.
+
+— Hanass Vinsent. Tingenning mashhur folbini. Klubning doimiy ustozi. Turli bashorat usullarida usta. Har safar to'rt soli oladi.
+
+Rostdan ham qimmat... Benson, Melissa va menga ikki to'kin kechki ovqatga yetadi-ku... Klein ichida tilini chaqillatdi, ammo javob bermadi.
+
+Buni ko'rgan ayol sahifani varaqlashda davom etib, a'zolarni birin-ketin tanishtirdi.
+
+— ...Va oxirgisi, Gleysis. Bu yil klubga qo'shilgan a'zo. U taro bashoratida mohir. Har safar ikki pens oladi.
+
+— Janob, kimni tanlamoqchisiz?
+
+Klein tortinmay javob berdi:
+
+— Janob Gleysisni.
+
+— ... — Ayol ikki soniya jim turgach dedi: — Janob, ogohlantirib qo'yishim kerak, janob Gleysis faqat yangi havaskor hisoblanadi.
+
+— Tushunaman. Qaroriming uchun o'zim javobgar bo'laman. — Klein jilmayib bosh irg'adi.
+
+— ...Unda iltimos, ortimdan yuring. — Ayol o'rnidan turib, Kleinni qabulxona zali yonidagi eshikdan o'tkazdi.
+
+Bu unchalik uzun koridor emasdi, uning oxirida ochiq yig'ilish xonasi bor edi. Yorug'lik yetarli, u stol va stullar bilan jihozlangandi. Gazeta, jurnal va qog'oz kartalar bor edi. Xira qahva hidi taralardi.
+
+Yig'ilish xonasidan taxminan ikki xona narida xizmatkor Kleinga to'xtashni ishora qildi. U sur'atini tezlatib, xonaga kirdi. Mayinlik bilan baqirdi:
+
+— Janob Gleysis, kimdir bashoratingizni istayapti.
+
+— Menmi? — darrov hayrat va shubhaga to'la ovoz yangradi. Shundan so'ng stul surilgan ovoz keldi.
+
+— Ha, qaysi bashorat xonasini ishlatmoqchisiz? — javob berdi ayol hech qanday hissiyotsiz.
+
+— Topaz xonasi. Men topazni yaxshi ko'raman.
+
+Gleysis yig'ilish xonasi eshigi oldida paydo bo'lib, uncha uzoq bo'lmagan joyda kutib turgan Kleinga qiziqsinib qaradi. U o'ttiz yoshlardagi kishi edi; terisi biroz to'q, qorachiqlari to'q yashil rangda edi. Och, sariq va mayin sochi ostida u oq ko'ylak va qora jiletka kiygandi. Ko'kragida monokl osilib turar, u yaxshi tabiatli ko'rinardi.
+
+Xizmatkor boshqa hech narsa demay, yig'ilish xonasi yonidagi Topaz xonasi eshigini ochdi.
+
+Ichkaridagi pardalar qattiq tortilgan, bu uni xira qilgandi. Ko'rinishidan, faqat shunday qilibgina kishi xudolar va ruhlardan aniq bashorat natijasiga erishish uchun vahiy olardi.
+
+— Salom. Men Gleysisman. Bashoratingiz uchun meni tanlaysiz deb sira kutmagandim. — Gleysis janobcha ta'zim qilib, jadal xonaga qadam tashladi va uzun stol ortiga o'tirdi. — Rostini aytsam, men endigina boshqalarga bashorat qilishga urinyapman. Ko'p tajribam yo'q. Hozircha men yaxshi folbin emasman. Hali pushaymon qilish imkoniyatingiz bor.
+
+Klein ta'zimni qaytargach, kirib, ortidan eshikni yopdi. Pardalardan sizib kirayotgan yorug'likda jilmayib dedi:
+
+— Siz rostdan ham halol odam ekansiz, ammo men tanlovida juda qat'iy turadigan odamman.
+
+— Marhamat, o'tiring. — Gleysis oldidagi joyga ishora qilib, bir necha soniya o'ylandi. — Bashorat — mening sevimli mashg'ulotim. He-he. Hayotda odam ko'pincha ilohiy yo'l-yo'riq oladi, ammo oddiy odam ma'nosini aniq tushuna olmaydi. Bashoratning mavjudligi sababi shu, men bu klubga qo'shilganimning sababi ham. Bu jihatda menga hamon ishonch yetishmaydi. Keling, keyingi bashoratni almashinuv — bepul almashinuv qilaylik. Taklifim qanday? Klub talab qiladigan haqni o'zim qoplayman. Atigi chorak pens.
+
+Klein na rozi bo'ldi, na bosh chayqadi. Buning o'rniga jilmaydi.
+
+— Ko'rinishidan, sizda ancha yaxshi maoshli, durust ish bor.
+
+Shunday derkan, u tanasini biroz oldinga engashtirdi. O'ng mushti bilan peshonasini tutib, ikki marta chertdi.
+
+— Lekin bu mening bashoratim aniqligini oshirmaydi, — javob berdi Gleysis hazil bilan. — Boshingiz og'riyaptimi? Sog'liqqa oid muammolarni bashorat qilmoqchimisiz?
+
+— Bir oz. Men bir narsaning qayerdaligini bashorat qilmoqchiman. — Klein allaqachon bahona o'ylab qo'ygandi, u sekin orqaga suyandi.
+
+Uning ko'zida Gleysisning aurasi yaqqol namoyon bo'ldi. O'pkasi atrofidagi to'q sariq ranglar to'q va siyrak edi. Ular hatto boshqa joylarning yorqinligiga ham ta'sir qilgandi.
+
+Bu charchoq alomati emas... Klein bilinmas tarzda bosh irg'adi.
+
+— Yo'qolgan narsani izlayapsizmi? — Gleysis bir necha soniya o'ylab dedi: — Unda sodda bir aniqlash qilaylik. — U qora stoldagi saranjom terilgan taro kartalarini Kleinga surdi. — Tinchlaning. O'sha narsani o'ylang va o'zingizdan "uni hali topish mumkinmi" deb so'rang. Shunday qilib, dastani aralashtiring va bo'ling.
+
+— Mayli. — Klein aslida qadimiy daftar qanaqa ko'rinishini eslamasdi. U faqat savolni o'ziga o'zi takrorlay olardi: Antigonus xonadoni daftarini hali topish mumkinmi?
+
+Savolni takrorlarkan, u mohirlik bilan dastani aralashtirib bo'ldi.
+
+Gleysis eng tepadagi kartani olib, Kleinning oldiga surdi. Karta gorizontal holda, rasmi pastga qaragandi.
+
+— Uni soat mili yo'nalishida tikkaygunicha buring. So'ng ochib qo'ying. Agar karta teskari bo'lsa, ya'ni kartadagi rasm sizdan teskariga qaragan bo'lsa, bu narsani topib bo'lmasligini bildiradi. Agar karta to'g'ri bo'lsa, biz bashoratni davom ettirib, uning aniq joyini izlay olamiz.
+
+Klein uning ko'rsatmasiga amal qilib, gorizontal kartani tikkaytirdi. Taro kartasining uchidan ushlab, uni ag'dardi.
+
+Bu teskari karta edi.
+
+— Achinarli. — Gleysis xo'rsindi.
+
+Klein javob bermadi, chunki diqqati oldidagi taro kartasiga qaratilgandi.
+
+Teskari kartaning rasmi dabdabali kiyim va savlatli bosh kiyimda edi — Telba!
+
+Yana Telbami? Bunchalik tasodif bo'lmasa kerak-a... Osilgan odam va keksa Neylga ko'ra, bashorat — ruhiyat va ruhiy olamning yuqori o'lchamdagi "men" bilan muloqoti natijasi. Taro kartalari faqat haqiqat nimani ramzlashini o'qish uchun qulay vosita. Nazariy jihatdan, qaysi bashorat asbobini ishlatish farq qilmaydi, chunki u natijaga ta'sir qilmaydi... Klein qoshini chimirib bir oz o'yladi.
+
+— Narsa allaqachon boshqalarning qo'liga o'tib ketganmi-yo'qmi, buni bashorat qilsa bo'ladimi?
+
+— Albatta. Xuddi shu tartibga amal qilib, yana bir bor qiling. — Gleysis chuqur qiziqish bilan bosh irg'adi.
+
+Klein savolni o'ylab, dastani aralashtirdi va bo'ldi. Bir karta tortib, uni gorizontal qo'ydi, so'ng soat mili yo'nalishida tikkaytirdi. Jiddiy ifoda bilan barcha tayyorgarlikni tugatdi.
+
+Chuqur nafas olib, Klein qo'lini cho'zib, taro kartasini ag'dardi.
+
+Yana Telba bo'lmasin-da... Duo qilarkan, u birdan yengil tortdi, chunki karta Yulduz kartasi edi, qolaversa, u teskari edi!
+
+— Ko'rinishidan, narsani hali boshqalar olmagan ekan, — sharhladi Gleysis jilmayib.
+
+Klein bosh irg'ab, o'ng qo'lini ko'tardi. Qoshlari orasini chertib, go'yo chuqur o'yga botgandek ko'rindi. So'ng cho'ntagidan to'q mis yog'duli ikki pens chiqarib, Gleysisga surdi.
+
+— Bepul demovdimmi? — dedi Gleysis qoshini chimirib.
+
+Klein kulib o'rnidan turdi.
+
+— Bu — bashorat loyiq bo'lgan hurmat.
+
+— Mayli, saxiyligingiz uchun rahmat. — Gleysis o'rnidan turib, qo'lini cho'zdi.
+
+Qo'l berib ko'rishgach, Klein ikki qadam orqaga tisarilib, o'girildi. Eshik oldiga borib, tutqichni burdi. Endigina chiqmoqchi bo'lganda, birdan boshini burib, lo'nda qilib dedi:
+
+— Janob Gleysis, imkon qadar tezroq shifokorga ko'rinishingizni maslahat beraman. O'pkangizga e'tibor bering.
+
+— Nega? — so'radi Gleysis hayrat bilan. Bashorat natijasidan mamnun bo'lmaganingiz uchun meni qarg'ayapsizmi?
+
+Klein bir oz o'ylab dedi:
+
+— Bu yuzingiz rangiga asoslangan alomat. Sizning, xo'sh... qoshlaringiz orasi qoraygandek.
+
+— Qoshlar orasi qoraygandek... — Gleysis bunday ta'rifni birinchi marta eshitayotgandi.
+
+Klein boshqa tushuntirmay, jilmayib xonadan chiqdi. Ortidan yog'och eshikni yopdi.
+
+— U litsenziyasiz shifokormi yoki tabibmi? — Gleysis bosh chayqab kulimsiradi. So'ng bashorat uchun monoklini oldi. Sinchiklab qaraganda, qoshlari orasi rostdan ham qora ekanini angladi. Ammo bu muhit muammosi edi. Pardalar yopiq bo'lgani uchun zulmatda nafaqat qoshlari orasi, balki butun yuzi zulmatga burkangandi!
+
+— Unchalik yoqimli hazil emas, — pichirladi Gleysis.
+
+U tashvish bilan o'z sog'lig'ini bashorat qilib, hammasi joyidaligiga ishonch hosil qildi.
+
+...
+
+Bashorat Klubidan chiqqach, Kleinda kelajak uchun yana bir reja paydo bo'ldi. Bu — klubga a'zo bo'lish uchun yillik haqni to'lash maqsadida imkon qadar ko'proq pul yig'ish edi. Shundan so'ng u Ko'ruvchi rolini o'ynay boshlay olardi. Nega buni mustaqil qilishni tanlamaganiga kelsak, u hozircha resurs va imkoniyatlar yetishmasligi sababli edi. U o'z obro'sini o'ylagani uchun, ko'chada savdogardek turishni o'ziga ep ko'rmasdi.
+
+Bir necha daqiqadan so'ng jamoat aravasi keldi. U ikki pens sarflab, uncha uzoq bo'lmagan Zouteland ko'chasiga yetdi. Blackthorn Qo'riqlash Kompaniyasi eshigini itarib ochdi, ammo tanish jigarrang sochli qizni ko'rmadi. U faqat qabulxona peshtaxtasi ortida shoirona tarovatli, qora soch, yashil ko'zli Leonard Mitchellni ko'rdi.
+
+— Xayrli kun. Rozanna qani? — so'radi Klein qalpog'ini yechib, ta'zim qilib.
+
+Leonard jilmayib, to'siqqa ishora qildi.
+
+— Bugun kechqurun qurolxonada uning navbati.
+
+Klein boshqa savol berishini kutmay, Leonard go'yo bir masala ustida bosh qotirayotgandek dedi:
+
+— Klein, meni doimo qiynab kelgan bir savol bor.
+
+— Nima u? — Klein gangib qoldi.
+
+Leonard o'rnidan turib, jilmayib bemalol ohangda dedi:
+
+— Nega Uelch va Naya o'sha joyda o'z joniga qasd qildi-yu, sen uyga qaytding?
+
+— Bu, ehtimol, noma'lum mavjudot meni Antigonus xonadoni daftarini olib ketib yashirishga majbur qilgani bilan bog'liqdir, — javob berdi Klein rasmiy taxmin bilan.
+
+Leonard narigi-berigi yurib, so'ng o'girilib Kleinning ko'ziga tik qaradi.
+
+— Agar o'z joningga qasding seni tinchitish va har qanday ip uchini yo'q qilish uchun bo'lsa, nega o'sha yerda, o'sha zahoti daftarni yo'q qildirishmadi?
+
+
+# BOB 39: Qiziqarli Hiyla
+
+Aslida, men daftar yo'q qilinganmi yoki yashirilganmi bilmayman... ammo teskari mulohaza yuritsam, agar uni yo'q qilish kerak bo'lsa, buni o'sha joyda qilsa bo'lardi. Yo'q qilish uchun uni olib ketishimga hojat yo'q edi... Leonardning savolini eshitib, Klein bir zumda klaviatura detektivi holatiga o'tdi va xo'rsinib dedi:
+
+— Ehtimol, Uelch, Naya va men noma'lum mavjudot bilan aloqaga kirishganimizda, u jon qurbonligidan zavqlangandir yoki shunga o'xshash holatlar davom etishini istagandir. O'z joniga qasd, albatta, osongina topiladigani uchun, men daftarni olib ketib yashirishga majbur qilingandirman — mavjudotning ikkinchi tur ko'ngilxushligiga tayyorgarlik ko'rish uchun. Biroq jarayonda biror tasodif yuz berib, men o'z joniga qasdimni uddalay olmadim.
+
+Bu Klein tariqat qurbonliklariga oid romanlar, kinolar va teleseriallardan undirgan asosli taxmin edi. Yo'l yarmida yuz bergan tasodifga kelsak, u buni o'zining o'zgaolamlik ekanidagi kutilmagan o'zgaruvchi tufayli ekanini juda yaxshi bilardi.
+
+— Ancha yaxshi izoh, ammo menimcha, boshqa ehtimollar ham bo'lishi mumkin. Uelch va Nayaning o'z joniga qasd qurbonligi noma'lum mavjudotning bu olamga tushishiga imkon bergan bo'lishi mumkin. Unda o'sha daftar — yovuzlik uchun idish yoki uya. U seni uni olib ketib yashirishga majbur qilgan, biz uning tug'ilishini kashf etib, u kuchayishidan oldin uni yo'q qilamiz deb qo'rqib. — Leonard Mitchell boshqa bir ehtimolni taklif qildi. Shunday derkan, u Kleinning ko'ziga tikilib, yengilgina jilmaydi.
+
+— Albatta, ehtimol, daftar yo'q qilingandir. Maqsad — uning mazmunini yashirish, yovuzlik idishi yoki uyasini berkitish. Shunday qilib, sening o'z joniga qasding uddasiz tugagani uchun yetarli sabab bo'ladi.
+
+U nima demoqchi? Mendan shubhalanyaptimi? Asl Kleinning tanasi idish yoki yovuzlik uyasi deb gumon qilyaptimi? Yo'q, men idish bo'lib turganim — bir o'zgaolamlik uchun... Aslida, "uya" to'g'ri atama emas. Klein esankiradi. Bu fikrni ichida tanqid qilarkan, so'zlarini o'lchadi.
+
+— Men o'zimni himoya qilishga urinmayman, chunki o'sha davrdagi xotiralarni yo'qotganman. Kapitanmi yoki Deyli xonimmi, ular allaqachon menda muammo yo'qligini tasdiqlashgan. Sizning hazilingiz kulgili emas.
+
+— Men faqat bir ehtimolni o'ylayapman, xolos. Bu noma'lum mavjudot bu olamga tushganda olgan zarba — sening o'z joniga qasding uddasiz tugashiga sabab bo'lganini ham inkor etmaydi. Bizning ishonchimiz komilki, ma'buda oxir-oqibat bizga marhamat qiladi. — Leonard kulib, mavzuni o'zgartirdi. — Tushdan keyin biror narsa kashf etdingmi?
+
+Suhbat va avvalgi uchrashuvlardan keyin Klein Leonarddan juda ehtiyot bo'lardi. U vazminlik bilan javob berdi:
+
+— Yo'q. Ertaga tushdan keyin boshqa yo'ldan urinib ko'rmoqchiman. — U to'siqqa ishora qilib dedi: — Men qurolxonaga borib, o'q olishim kerak.
+
+Otishxona kechqurun soat to'qqizgacha ochiq edi. Axir, uning bo'shligi ko'plab a'zolari ishdan kelganidan keyin oshardi.
+
+— Ma'buda senga marhamat qilsin. — Leonard ko'kragida qirmizi oy ishorasini qilib jilmaydi. U Kleinning to'siqdan o'tib ketishini kuzatdi va zinadan tushib ketgan qadam tovushlarini tingladi.
+
+Leonardning tabassumi asta-sekin g'oyib bo'ldi, yashil ko'zlarida shubha ifodasi paydo bo'ldi. U norozi ohangda allanima pichirladi.
+
+...
+
+Zinadan tushib, Klein gaz chiroqlari yoritgan koridor bo'ylab qurolxona va arxivga bordi. Temir eshik ochiq, jigarrang sochli Rozanna stol oldida turardi. U silindr shlyapa kiygan, qalin qora soqolli o'rta yoshli kishi bilan gaplashardi.
+
+— Xayrli kun, yo'q. Xayrli kech. Bu yerda doimo tun. Klein, keksa Neyldan eshitishimcha, Beyonder bo'libsan? U Ko'ruvchi deb ataladimi? — Rozanna boshini burib, uni savollarga ko'mib tashladi. U qiziqishi va tashvishini yashirmadi.
+
+Klein jilmayib bosh irg'adi.
+
+— Xayrli kun, Rozanna xonim. Bu yerda rostdan ham doimo tun, ammo bu kishiga osoyishtalik hissini beradi. Sizning ta'rifingiz yetarlicha aniq emas edi. Men iste'mol qilgan Sequence iksirining nomi Ko'ruvchi desa to'g'riroq bo'ladi.
+
+— Sen baribir Beyonder bo'lishni tanlabsan-da... — dedi Rozanna xo'rsinib va chuqur o'yga botib.
+
+Klein uning yonidagi o'rta yoshli kishiga qarab, xushmuomalalik bilan so'radi:
+
+— Siz...? — Yana bir Tungi Lochin a'zosimi yoki men hali uchratmagan boshqa ikki fuqaro xodimning biri?
+
+Rozanna lablarini cho'chchaytirib dedi:
+
+— Bredt. Hamkasbimiz. U indingi tunni bo'sh qilish uchun men bilan navbat almashmoqchi. U Shimoliy mahalladagi teatrga xotini bilan "Mag'rur" spektaklini ko'rgani bormoqchi. Bu — ularning o'n besh yillik nikoh yubileyini nishonlash uchun. U rostdan ham romantik janob.
+
+Bredt jilmayib qo'lini cho'zib dedi:
+
+— Rozanna xonim bor joyda takrorlashga hojat yo'q. Salom, Klein. Sen shu qadar tez Beyonder bo'lasan deb sira kutmagandim. Menga kelsak, he, menda hech qachon jasorat bo'lmasa kerak.
+
+— Ehtimol, maqolda aytilganidek, bilmagan qo'rqmas, — dedi Klein o'zini mazax qilib, Bredt bilan qo'l berib ko'rishish uchun qo'lini cho'zarkan.
+
+— Menda jasorat yo'qligi yomon narsa emas, — dedi Bredt bosh chayqab. — Bir Beyonder o'limidan oldin menga g'alati va xavfli narsalarni hech qachon poylama deb aytgandi. Qancha kam bilsang, shuncha uzoq yashaysan.
+
+Shu payt Rozanna gapga aralashdi:
+
+— Klein, e'tibor berishing shart emas. Keksa Neyldan eshitishimcha, Ko'ruvchi sifatida sen yordamchi sifatida ishlatilasan. Noma'lum mavjudotlar bilan aloqaga kirishishga urinmasang bas, u nisbatan xavfsiz. Nega bunaqa kiyim kiygansan? Janobga sira yarashmaydi! Bu yerga nega kelding?
+
+— Men o'ttizta o'qimni olgani keldim. — Klein Rozannaning birinchi savoliga javob bermadi. U bu xonim bu masalani tez unutadi deb ishonardi.
+
+— Mayli. — Rozanna stolga ishora qilib dedi: — Bredt, hammasi senga. Kalit va o'qlar qayerdaligini bilsang kerak. Voy, keksa Neyl rostdan ham mayda gap. U hatto o'zining qo'lda yanchgan qahvasini ham qoldirmabdi. Bugun to'yib ichishing mumkin deb va'da bergandi-ku...
+
+U vaysayverdi, Klein esa o'qlarini oldi. Ikkovi birga chiqib, Zouteland ko'chasida turli tomonga ketishdi. Biri jamoat aravasida uyga, ikkinchisi Otishxona Klubiga yurib kirdi.
+
+Bang! Bang! Bang! Klein jarayonni — qurolni ushlash, qo'llarni ko'tarish, otish, barabanni ochish, bo'sh gilzalarni chiqarish va o'q joylashni — qayta-qayta takrorladi. U jarayonga o'rganib, uni mushak xotirasiga aylantirdi.
+
+Albatta, oraliqda jarayonni qayta ko'rib chiqish va tuzatish uchun bir necha bor dam oldi. Mashqini tugatgach, Klein maydonda bukilishlar kabi turli mashqlar qildi. U jismini mashq qildirish uchun jon kuydirib, gavdasini yaxshilashga harakat qildi.
+
+Hammasi tugagach, u relssiz aravada uyga keldi. Faqat shundagina yetti bo'lay deganini va osmon allaqachon qorong'i bo'lganini angladi.
+
+Klein endigina kechki ovqat masallig'ini olish uchun bozorga yoki ko'chaga chiqmoqchi bo'lganda, eshik ochildi. Melissa yozuv qurollari to'la sumkasi bilan qaytgandi. Bundan tashqari, u ancha ko'p oziq-ovqat ko'tarib kelgandi.
+
+— ...Men sen va Benson uyga ancha kech qaytadi deb o'ylagandim. Bugun ertalab pul yashiradigan joyingdan 1 soli oldim. — Akasining savol nazarini ko'rib, Melissa odatdagi jiddiy ohangida tushuntirdi.
+
+— Pul olding ekan, nega maktabga jamoat aravasida bormading? — Klein bu masalani ertalabdan beri eslab yurardi.
+
+Melissa qoshini chimirib dedi:
+
+— Nega jamoat aravasida boray. Maktabga borish to'rt pens turadi. Borib-kelish sakkiz pens degani. Benson va seni qo'shsak, transportga kuniga yigirma to'rt pens sarflaymiz. Bu — butun boshli bir soli! Bir haftada, ha, yakshanbani hisobga olmaganda, baribir o'n ikki pens. Bu deyarli ijaramizga teng.
+
+To'xta, to'xta, to'xta! Matematik mahoratingni ko'z-ko'z qilma... Klein kulgisi qistab kaftini tushirdi.
+
+Melissa avval to'xtab, so'ng qo'shib qo'ydi:
+
+— Maktabga piyoda yurish ancha yaxshi. O'qituvchimiz har kim tez-tez mashq qilishi kerak degandi. Qolaversa, yo'lda bir oz buzilgan detallar terib olaman.
+
+Klein kulimsirab dedi:
+
+— Unda yana hisob-kitob qilaylik. Jamoat aravasi o'n ikki soliga tushadi. Ijara o'n ikki soli-yu uch pens. Jami bir funt-u to'rt soli-yu uch pens. Bensonning maoshi shuni to'lashga yetadi, qaytim ham anchagina qoladi. Ha, u o'tgan haftalik maoshini olgan... Menga kelsak, men haftasiga bir funt-u o'n soli topa olaman. Har kuni go'sht yesak, gaz, ko'mir, o'tin va ziravorlar kabi xarajatlarni hisobga olganda ham, tushlikda tejamkor bo'lsak, baribir biroz qoladi. Hatto atigi bir pensga tong gazetalariga obuna bo'la olamiz.
+
+— Ikki oydan keyin, bo'nakni qoplaganimda, sen va Benson uchun pul yig'a olaman. Yangi kiyim ola olamiz.
+
+— Lekin! Lekin biz bo'lishi mumkin bo'lgan baxtsiz hodisalarni o'ylashimiz kerak. — Melissa o'z fikrida qat'iy turdi.
+
+Klein unga jilmayib dedi:
+
+— Unda go'shtni kamroq yeymiz. Yo'lda ellik, yo'q, yuz daqiqa sarflashni vaqt isrofi deb topmaysanmi? O'sha vaqtni ko'proq o'qish, muammolar ustida o'ylash va natijalaringni yaxshilashga sarflashing mumkin.
+
+— Shunday qilib, Melissa, sen a'lo baholar bilan bitirib chiqasan. Ancha yaxshi maoshli ish topa olasan. O'shanda nimadan tashvishlanish kerak?
+
+— ... — U forumlarda odamlar bilan bahslashishdan orttirgan tajribasini to'la namoyish etib, oxiri Melissani ko'ndirdi. U maktabga jamoat aravasida borishga rozi bo'ldi.
+
+Uf, nihoyat uni ko'ndirib oldim. Yo'q, buni laqillatish desa bo'larmidi. Bu ko'ndirish deyiladi... Klein masxara qilib, so'ng Melissa olib kelgan oziq-ovqatni qabul qildi. U xo'rsinib dedi:
+
+— Mol go'shti yoki qo'y go'shti, tovuq kabi go'sht olishni unutma... To'yib ye va o'zingdan zavqlan. Faqat shundagina o'qishing talab qiladigan og'ir vazifalarga mos sog'lom tan va zukko miyaga ega bo'lasan.
+
+Tilga olishning o'ziyoq og'zimni suvga to'ldiryapti... Melissa lablarini cho'chchaytirib, bir necha soniya jim turgach dedi:
+
+— Mayli.
+
+...
+
+Ertasi kuni ertalab, Melissa jamoat aravasiga o'tirganiga ishonch hosil qilgach, Klein va Benson ajralib, o'z kompaniyalariga ketishdi. Klein eshikdan qadam qo'ygan zahoti, keksa Neyl va Rozanna qabulxona peshtaxtasi yonida gaplashayotganini ko'rdi. Birinchisi hamon o'zining mumtoz qora to'nida, boshqalarning nigohiga e'tibor bermay turardi. Ikkinchisi krem rangli oddiy ko'ylakka almashgandi.
+
+— Xayrli tong, janob Neyl, Rozanna xonim, — salom berdi Klein qalpog'ini yechib.
+
+Keksa Neyl unga shaddod bir nazar tashladi.
+
+— Xayrli tong, kecha eshitmasliging kerak bo'lgan biror narsani eshitmagandirsan, a?
+
+— Yo'q, juda yaxshi uxladim. — Klein o'zi ham bundan ancha gangib qolgandi. U buni faqat sezgisi yetarli emasligiga yo'yardi...
+
+— Haha, e'tibor berma. Aslida, u unchalik osongina eshitilmaydi. — Keksa Neyl to'siqqa ishora qildi. — Qurolxonaga bor. Bugun ertalab sirli ilm darsimizni davom ettiramiz.
+
+Klein bosh irg'ab, keksa Neyl ortidan zinadan tushdi va tun bo'yi navbatchilik qilgan Bredtning o'rnini bosish uchun qurolxonaga keldi.
+
+— Bugun nima o'rganamiz? — so'radi Klein qiziqsinib.
+
+Keksa Neyl javobini cho'zib dedi:
+
+— Murakkab va asosiy bilim. Ammo undan oldin senga bir qiziqarli hiyla o'rgatay.
+
+U bilagidagi kumush zanjirga ishora qildi. Zanjirdan sof oy toshi osilib turardi.
+
+
+# BOB 40: Sirli Ilm Dasturi
+
+— Qiziqarli hiyla? — so'radi Klein o'ta qiziqib.
+
+Keksa Neyl kulimsirab dedi:
+
+— Men qurolxona, ombor va arxivni aylanib chiqaman. Stoldagi ikki piyolada ikki piyola qahva tayyorla. Bir piyolaga biror yoqimsiz narsa sol. Nima ekanini o'zing hal qil. Tasavvuringni ishlat. Mendan yagona iltimos — qahva kukunini ko'p isrof qilmaslik. Ular Feynapotter platosida o'stirilgan va o'zim qo'lda yanchgan qahva donlari!
+
+— Mayli. — Klein keksa Neyl nima qilmoqchi ekanini bilmasa-da, quvonch bilan rozi bo'ldi. U keksa Neylning mis kalit bilan qurolxona temir darvozasini ochganini kuzatdi, so'ng ichkaridan aks-sado bergan qadam tovushlarini eshitdi.
+
+Sekin piyolalarni qo'yib, choynakda hamon issiq suv borligiga ishonch hosil qildi. Kumush qutining qopqog'ini ochib, metall yog'duli mitti qoshiq bilan Klein har bir piyolaga bittadan qoshiq boy xushbo'y qahva kukunini soldi. So'ng issiq suv quyib, aralashtirdi.
+
+Resurslarga boy davrdan kelgan o'zgaolamlik sifatida, u qahvaga begona emasdi. Biroq bu faqat eritma qahva bilan cheklangandi.
+
+Vazifani tugatgach, Klein bir oz o'ylab o'tirdi. O'ng oyog'ini chalishtirib, charm etigining tagini ifloslatgan loydan bir oz olib, chap piyolaga soldi.
+
+So'ng ikki piyola qahvaning rangi va hidi deyarli ajralmas bo'lgunicha uni yana ehtiyotkorlik bilan aralashtirdi.
+
+Bir necha daqiqadan so'ng keksa Neyl kalitlarini silkitgancha qurolxonadan chiqdi. So'ng temir darvozani jaranglatib yopdi.
+
+— Tugatdingmi? — U biroz xira to'q qizil ko'zlarini burib, stol narisidagi Kleinga qaradi.
+
+— Ha, — javob berdi Klein bosh irg'ab.
+
+Keksa Neyl kulimsirab, bilagidagi kumush zanjirni yechib o'tirdi. Ifodasi tez osoyishta tortdi. Zanjir ushlagan chap qo'lini cho'zib, uni o'ng tomonidagi qahva piyolasi ustida osilib turishiga qo'ydi. Oy toshi suyuqlikka deyarli teganday edi.
+
+Tinch sukunat orasida oy toshi birdan titradi. U zanjirni soat miliga teskari yo'nalishda aylantira boshladi.
+
+— Bu piyola — yoqimsiz narsa solingani, — dedi keksa Neyl ishonch bilan. Kleinning tasdiqlashini kutmay, kumush zanjirni olib qo'ydi va boshqa qahva piyolasini olib, bir ho'pladi. — Achchiq qahvani yaxshi ko'rasanmi? Men bir osh qoshiq shakar va bir osh qoshiq sut qo'shishga o'rganganman.
+
+Klein javob bermay, qiziqishi uyg'onib so'radi:
+
+— Sizning bashoratingiz rostdan ham aniq ekan. Bu oy toshi tufaylimi? U oy toshi edi-a?
+
+— Bu bashoratda mayatnik bilan suv izlash deb ataladi. Uni ruhiy mayatnik deb ham atashadi. U sening Astral Proyeksiyangning ruhiy olam va fazo bilan bog'lanishiga tayanib, billur, qimmatbaho tosh yoki maxsus metallar kabi tabiiy materiallar yordamida ruhiy idrok bilan muloqot qiladi. Narsalarning yaxshi-yomonligini bashorat qilsa bo'ladi... Ikki piyola qahva haqida gaplashaylik. Soat miliga teskari harakat yomonni, soat mili yo'nalishidagi harakat yaxshini bildiradi. Agar qimirlamasa, bu na yaxshi, na yomon. Bayonni qog'ozga yozsang bo'ladi. Esda tut, bu bayon, savol emas. — Keksa Neyl qahva piyolasini qo'yib, batafsil tushuntirdi.
+
+Klein o'ylayotgandek so'radi:
+
+— Bu so'roq gap ishlatish kerak degani emasmi?
+
+— Ha, "falonchi mening kelinim bo'lishga rozimi" deb ishlatolmaysan, balki "falonchi mening kelinim bo'lishga rozi" deyishing kerak. Uni qog'ozga yozib, stolga qo'y. So'ng yetakchi qo'ling bilan mayatnik zanjirini ushla. Esda tut, yetakchi qo'ling bilan, — dedi keksa Neyl kulimsirab. — Buni qilganda, qo'lingni tik tut. Zanjir uzunligini moslab, oy toshini qog'oz ustida — yozganimizga deyarli tegay deb turadigan darajada osiltir. So'ng ko'zlaringni yumib, jumlani xayolingda yetti marta takrorla. Tugatganda ko'zlaringni ochib, ruhiy mayatnik aylanadimi-yo'qmi qara. Aylanmasa, yana ko'zlaringni yumib, harakatlanguncha jarayonni takrorla.
+
+Klein yengilgina bosh irg'ab so'radi:
+
+— Soat miliga teskari "yo'q", soat mili yo'nalishi "ha" degani-a?
+
+— Uni muvaffaqiyat yoki muvaffaqiyatsizlik deb ham talqin qilsa bo'ladi, — tuzatdi keksa Neyl. U Kleinga ruhiy mayatnik bashoratining boshqa ishlatilishlari va tafsilotlarini o'rgatdi.
+
+Klein masalani mulohaza qilib, uning juda foydali bashorat hiylasi ekanini angladi. Masalan, u uni notanish muhitda tezda ishlatib, taklif qilingan ovqat zaharlimi-yo'qmi aniqlay olardi. Unga dala biologiyasiga oid qo'shimcha bilim kerak emasdi.
+
+Albatta, bunday bashorat usullari haddan tashqari sodda edi. U ola oladigan javoblar ikki-uchta bilan cheklangandi. Chuqurroq tergov yoki talqin qilishning iloji yo'q edi. Masalan, biror narsa tanaga zararli bo'lishi mumkin bo'lsa-da, ozgina qayta ishlangandan keyin juda foydali bo'lib qolardi. Ayrim taomlar shunga misol edi. Ular tanaga zarar yetkazardi, ammo unchalik jiddiy emas. Agar odam ochlikdan o'lay deb tursa, uni yeyishda katta muammo bo'lmasdi. Bular ruhiy mayatnik aniqlay olmaydigan narsalar edi.
+
+— Ruhiy mayatnik yasash uchun billur yoki sof kumush olishga tezroq pul yig'ishim kerak... — xo'rsindi Klein.
+
+Keksa Neyl unga hayron qaradi.
+
+— To'g'ridan-to'g'ri ariza berib olsang bo'ladi. Bu Beyonderlar uchun standart ta'minot, ayniqsa, biz kabi yordamchi rol o'ynaydigan Beyonderlar uchun. Qurolxonada hali topaz va sof kumush ruhiy mayatnik bor.
+
+— Lekin men hali jamoaning rasmiy a'zosi emasman-ku... — Kleinning yuragi hayajondan hapriqdi, ammo u biroz ikkilandi.
+
+Keksa Neyl kulimsirab dedi:
+
+— Beyonderlar uchun, rasmiy a'zomi yoki yo'qmi — baribir, maosh oshmagani uchun ularga boshqa sohalarda qulayliklar berilishi kerak.
+
+— Balki "imtiyoz" so'zi mosroqdir. Keyinroq Kapitanga ariza beraman! — Klein yashirin musht tugib, qaror qildi. Urinmasa, Kapitan iltimosini ma'qullaydimi-yo'qmi qayoqdan biladi?
+
+— Mayli, — dedi keksa Neyl jilmayib. — Endi sirli ilm dasturimizni rasman boshlay olamiz. Asosi ramziylikdan iborat. Ramziylik nimani anglatishini bilasanmi?
+
+Klein eshitgan bo'lak-bo'lak narsalarni va ruhiy olami hamda kulrang tumandan ko'rgan-eshitganlarini esladi. U o'ylab dedi:
+
+— Ruhiy olammi yoki xayoliy yulduzli fazomi, shuningdek, noma'lum olamlarmi — ularning bari bizning sezgi olamimizdan tashqarida. Bu quloq, burun va ko'zimiz olgan ma'lumot bilan aniq ta'riflab bo'ladigan narsa emas. Biz olgani — shunchaki ta'riflab bo'lmas tajribalar va bevosita vahiylar. Ular abstrakt belgilar yoki tasviriy ramzlar shaklida ham namoyon bo'ladi. Bu ramzlar turli narsalarni va turli ma'nolarni ifodalaydi.
+
+— Juda aniq. Ko'ruvchidan kutilganidek. — Keksa Neyl tantanavor bosh irg'adi. — Faqat ramzlarni talqin qilish qobiliyatini egallabgina sirli ilm olamiga keyingi qadamni qo'ya olasan. Ha, taro kartalaridagi rasmlar va rasmlardagi har bir unsur — ramzlar. Ular ibtidoiy vahiylarni tushunish va talqin qilishimizga yordam beradigan inson yaratgan ramzlar.
+
+U bir varaq qog'oz chiqarib, yonidagi perli ruchkani oldi. Bir kalta egri chiziq chizdi. Shundan so'ng chiziq tagiga bir necha tik chiziq qo'shdi. Boshini ko'tarib, Kleinga so'radi:
+
+— Bu ramz nimani ifodalashini bilasanmi?
+
+Klein ancha vaqt qarab turgach, ikkilanib dedi:
+
+— Kiprikmi?
+
+— ... — Keksa Neyl nafas chiqardi. — Bu — Mo'l Hosil yulduz turkumining ramzi. Bu — Momaqaldiroq yulduz turkumi, bu esa — Qirov yulduz turkumi... — U beg'amgina yana bir necha ramz chizdi.
+
+Klein ularni yodlarkan, izoh bermasdan turolmadi:
+
+— Bu yulduz turkumlarining nomlari rostdan ham... ayniqsa, bayog'i ekan. Ha, bayog'i!
+
+Naqadar qo'pol va ibtidoiy...
+
+Keksa Neyl jilmaydi.
+
+— Imperator Roselle ham o'shanda shunday o'ylagandi. U doimo yulduz turkumlari nomlarini Sunbula, Saraton va Aqrab kabi narsalarga o'zgartirish niyatida bo'lardi. Afsuski, an'anaga qarshi turishga kuchi yetmadi. Hech bo'lmasa, bu yulduz turkumlarining eski nomlari va ular ifodalovchi mos sanalar dehqonchilik hamda hosilga yo'l ko'rsatadi.
+
+— Aytishim kerakki, imperator Roselle rostdan ham g'oyali odam ekan. — Klein nima deyishini bilmay qoldi. Ha, imperator Roselle tirikligida, ehtimol, durust odam bo'lgandir...
+
+Keksa Neyl Kleinning hazilini tushuna olmadi, u turli asosiy ramzlarni — masalan, turli yulduz turkumlari, quyosh, qirmizi oy, jigarrang yulduz, qizil yulduz va ko'k yulduzni tushuntirishda davom etdi.
+
+Bular haqida gaplasharkan, u Kleinga bashorat astrolyabiyasini chizishni va nimalarga e'tibor berishni o'rgatardi. Shuningdek, billur shar materiallari va yasalishini, afsunlarni tanlashni ham o'rgatdi.
+
+Ta'limot Kleinni bosib ketdi. Ko'ruvchi iksiri xotirasini biroz yaxshilaganini kashf etmaganida, u allaqachon keksa Neyldan ma'lumotni hazm qilishga yordam berish uchun to'xtashni so'ragan bo'lardi.
+
+— Bugungi sirli ilm darsiga shu yetar. O'zing o'ylab ko'r, savoling bo'lsa mendan so'ra. — Keksa Neyl oltin cho'ntak soati chiqarib, vaqtni tekshirish uchun uni "tiq" etib ochdi. — Sen uchun tayyorlagan tarixiy hujjatlarni o'qishni unutma. Rostini aytsam, men ularni ko'rganda qo'rqaman.
+
+— Mayli. — Klein keksa Neyl ramzlar chizgan qog'ozlarni oldi. U bugun o'rgangan sirli ilm bilimini unutib qo'ymaslik uchun tez ko'zdan kechirdi.
+
+Keksa Neyl yangi damlangan bir piyola qahvadan bir ho'plab dedi:
+
+— Faqat yodlash ish bermaydi. Uni tez-tez ishlatishing kerak. Shunday qilib, bilimni instinktga aylantira olasan. Shuningdek, Tafakkurni har kuni davom ettirish kerak. Faqat ko'proq mashq va foydalanish iksir kuchini egallashga, u yashirgan sirlarini qazib olishga va yoqimsiz ta'sirlarini bartaraf etishga imkon beradi.
+
+Bu tilga olingach, Klein rol o'ynash va Bashorat Klubini esladi. U sinab so'radi:
+
+— Mening iksirim qobiliyatlari bashorat bilan bog'liq. O'zim mashq qilish ish bermaydi. Men ko'p odam bilan aloqaga kirishib, ularga bashorat qilishim kerak — uni tez egallash uchun. Ozgina pulim bo'lganda, Bashorat Klubiga — Shimoliy mahalla, Hauz ko'chasidagisiga — qo'shilib, chinakam Ko'ruvchi bo'lmoqchiman.
+
+Bu kelajakda u Tungi Lochinlardan yashira oladigan narsa emasdi. Ularni tayyorlab qo'ygani ma'qul edi.
+
+— Sening g'oyang Deylinikiga juda o'xshaydi. U doimo chinakam Ruh Mediumi bo'lishni hayqiradi. — Keksa Neyl bosh chayqab kuldi. — Ammo nega ozgina pulga ega bo'lguncha kutishing kerak? Dunnga ariza berib, undan xarajatlarni ma'qullatib olsang bo'ladi!
+
+— Bashorat Klubidek tashkilotlarda ham tariqatchilar yoki yovuz tashkilot a'zolari bo'lishi mumkin. Tungi Lochinlarning fuqaro xodimi va standart Beyonderi sifatida, sening a'zoligng bizga ularni kuzatishni osonlashtiradi. Bu — ishning bir qismi! Biz bunday joylarni muntazam kuzatardik, ammo kadrimiz yetishmagani uchun, ularni uzoq vaqt nazoratda tuta olmaymiz. Endi buni senga topshirsa bo'ladi.
+
+Men buni qila olamanmi? Keksa Neylning jiddiy ifodasiga qarab, Klein dovdirab qoldi. Bu shaxsiy ish uchun xarajat talab qilish-ku! Men bunaqa narsalarni bilmayman... Haqiqatan, men shunchaki klaviatura jangchisiman...
+
+— O'z puling bilan buni qilmoqchimisan? — Keksa Neyl Kleinning yuzini ko'rib jilmayib qo'shib qo'ydi.
+
+Klein darrov bosh chayqab, qat'iy javob berdi:
+
+— Men buni Kapitanga xabar qilmoqchiman!
+
+Keksa Neyl mamnun bosh irg'ab, ichida yoqimsiz narsa solingan qahva piyolasiga qaradi. U hali to'kib tashlanmagandi.
+
+— Unga nima solgan eding?
+
+Klein xijolat bilan jilmaydi.
+
+— Bu shunchaki etigim tagidagi loy. Uning rangi va sizning qahva kukuningiz deyarli bir xil.
+
+Keksa Neyl esankirab, so'ng birdan og'zini changallab o'kirdi:
+
+— Nega uni hali to'kib tashlamaysan?!
