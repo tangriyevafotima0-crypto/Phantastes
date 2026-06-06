@@ -302,7 +302,7 @@ Zhou Mingrui jilmayib bosh irg'adi.
 
 Loen qirolligining funti haqida Zhou Mingrui Kleinning mushak xotirasini o'zinikiga taqqosladi. U bu o'zi o'rganib qolgan o'lchovning yarim kilogramiga yaqin ekaniga ishondi.
 
-Melissa boshqa hech narsa demadi. O'rnidan turib, atrofni yig'ishtirdi. Tushlik uchun so'nggi bir bo'lak nonni o'rab qo'ygach, onasidan qolgan jıldur to'rli qalpoqni kiydi, kitob va yozuv qurollarini olib yurish uchun o'zi tikkan xaltani ko'tardi va jo'nashga shaylandi. Bugun yakshanba emasdi, shu bois uni kun bo'yi dars kutardi.
+Melissa boshqa hech narsa demadi. O'rnidan turib, atrofni yig'ishtirdi. Tushlik uchun so'nggi bir bo'lak nonni o'rab qo'ygach, onasidan qolgan jildur to'rli qalpoqni kiydi, kitob va yozuv qurollarini olib yurish uchun o'zi tikkan xaltani ko'tardi va jo'nashga shaylandi. Bugun yakshanba emasdi, shu bois uni kun bo'yi dars kutardi.
 
 Kvartiralaridan Tingen Texnika maktabiga yurib borish taxminan ellik daqiqa vaqt olardi. Shaharda kilometriga bir pens, ammo shaharda jami to'rt pens, shahar chetida olti pens chegarasi bilan ishlaydigan jamoat ot aravalari bor edi. Pul tejash maqsadida Melissa oldinroq chiqib, maktabga piyoda borardi.
 
@@ -6097,7 +6097,7 @@ Ehtimol, u yollanma askarlarning erkin fe'l-atvori haqida ancha eshitgani uchun,
 
 Leonard Mitchell bemalol jilmaydi.
 
-— Janob Vikroy faqat o'g'irlovchilarning yashiringan joyini topishimizని istaydiganga o'xshaydi? Aks holda, u yagona o'g'lini yuz funtga arzimaydi deb o'ylamasdi. Janubiy plantatsiyalar bilan yaqin aloqasi bo'lgan tamaki savdogari shunchaki ikki yuz funt taklif qilmasdi.
+— Janob Vikroy faqat o'g'irlovchilarning yashiringan joyini topishimizni istaydiganga o'xshaydi? Aks holda, u yagona o'g'lini yuz funtga arzimaydi deb o'ylamasdi. Janubiy plantatsiyalar bilan yaqin aloqasi bo'lgan tamaki savdogari shunchaki ikki yuz funt taklif qilmasdi.
 
 — Yo'q, janob Vikroy shunchaki oddiy savdogar. U badavlat hisoblanmaydi. Qolaversa, u o'g'lini qutqarishda politsiya kasbiyroq ish ko'radi deb ishonadi, — javob berdi Klee ochiq-oydin.
 
@@ -6526,7 +6526,7 @@ Klein bosh irg'ab, tez to'siqdan o'tdi. Dunn Smit kabineti eshigini ochib, uning
 
 — Bu Leonard bilan men kecha garovni qutqargan joyda. O'g'irlovchilar xonasi ro'parasida. O'shanda payqamadim, toki tush ko'rib, vahiy olguncha, — Klein hech narsani yashirmadi.
 
-— Ko'rinishidان, men katta hissa qo'shishni o'tkazib yuboribman. — To'siqqa kelgan Leonard kulimsiradi.
+— Ko'rinishidan, men katta hissa qo'shishni o'tkazib yuboribman. — To'siqqa kelgan Leonard kulimsiradi.
 
 Dunn yengilgina bosh irg'ab, tantanavor ifoda bilan ko'rsatma berdi:
 
@@ -6534,7 +6534,7 @@ Dunn yengilgina bosh irg'ab, tantanavor ifoda bilan ko'rsatma berdi:
 
 Leonard shaddodlik qilishni to'xtatib, darrov Tungi Lochinlarning ko'ngilxushlik xonasidagi Kenli va Frayni xabardor qildi. Ulardan biri Uyqusiz, ikkinchisi Murda Yig'uvchi edi.
 
-Besh daqiqadان so'ng Tungi Lochinlar tasarrufidagi ikki g'ildirakli arava ertalabki siyrak ko'chalar bo'ylab yura boshladi. Leonard patli qalpoq, ko'ylak va jiletka kiygandi. U aravakash o'rnida turib, goho qamchi bilan urar, jarangli "chars" tovushini chiqarardi.
+Besh daqiqadan so'ng Tungi Lochinlar tasarrufidagi ikki g'ildirakli arava ertalabki siyrak ko'chalar bo'ylab yura boshladi. Leonard patli qalpoq, ko'ylak va jiletka kiygandi. U aravakash o'rnida turib, goho qamchi bilan urar, jarangli "chars" tovushini chiqarardi.
 
 Arava ichida Klein va keksa Neyl bir tomonda o'tirishdi. Ularga yuzma-yuz Dunn Smit va Fray o'tirardi. Murda Yig'uvchining terisi shu qadar oq ediki, go'yo u ancha vaqt quyosh ko'rmagan yoki og'ir qon yetishmovchiligi bor edi. U o'ttiz yoshlardagi ko'rinardi, qora soch va ko'k ko'zli edi. Burni baland, lablari juda yupqa edi. Unda sovuq va qoramtir bir tarovat bor edi, tez-tez murdalarga tekkani uchun xira bir hid kelardi.
 
@@ -6643,7 +6643,7 @@ Shundan so'ng Dunn boshqa ikki yotoqxona eshigini ochib, sinchiklab tintdi. Hech
 
 Endi Ruhiy Ko'rish holatida bo'lmagan ikkovi bir ovozdan bosh chayqashdi.
 
-— Murdadan tashqari, qolgani me'yorda. Aslida, yo'q, boshida kvartirani muhrlाgan ko'rinmas energiya bor edi. Bilasiz, marosim sehrini ishlatganimizda odatda shunga o'xshash jarayonlar bo'ladi, — keksa Neyl bir necha soniya o'ylab qo'shib qo'ydi.
+— Murdadan tashqari, qolgani me'yorda. Aslida, yo'q, boshida kvartirani muhrlagan ko'rinmas energiya bor edi. Bilasiz, marosim sehrini ishlatganimizda odatda shunga o'xshash jarayonlar bo'ladi, — keksa Neyl bir necha soniya o'ylab qo'shib qo'ydi.
 
 Dunn endigina biror narsa demoqchi bo'lganda, eshik tashqarisiga qaradi. Bir necha soniyadan so'ng Klein va keksa Neyl bir narsani sezib, zinapoya tomon o'girilishdi. Bir necha soniyadan so'ng xira qadamlar kuchayib, Leonard bir politsiyachi bilan yuqoriga chiqdi.
 
@@ -6715,7 +6715,7 @@ Eshikni yopgach, Klein o'rganish va savollariga javob olish umidida, keksa Neylg
 
 — Nega men Antigonus xonadoni daftarini Rey Biberning uyiga jo'nataman?
 
-Bu Uelch yashagan Temir Xoch ko'chasidان butunlay boshqa yo'nalishda edi.
+Bu Uelch yashagan Temir Xoch ko'chasidan butunlay boshqa yo'nalishda edi.
 
 Keksa Neyl divan tomon yurib kulimsiradi.
 
@@ -6866,7 +6866,7 @@ Keksa Neyl noqulay ahvolga tushganga o'xshardi.
 
 — Mayli. — Klein o'rnidan turib, qalpog'ini yechib u bilan xayrlashdi.
 
-Kapitan Dunn peshinda qaytmaganda, Klein go'yo hamon daftarni izlayotgandek tutib, yana ko'chalarني aylandi. O'n funt topgani uchun u keyingi mablag' tarqatilishini kutishi shart emasdi. U to'g'ridan-to'g'ri Bashorat Klubiga borishi mumkin edi!
+Kapitan Dunn peshinda qaytmaganda, Klein go'yo hamon daftarni izlayotgandek tutib, yana ko'chalarni aylandi. O'n funt topgani uchun u keyingi mablag' tarqatilishini kutishi shart emasdi. U to'g'ridan-to'g'ri Bashorat Klubiga borishi mumkin edi!
 
 Tafakkur va Ruhiy Ko'rish goho pichirlashlar va alahsirashlar keltirayotgandi. Bu uni "rol o'ynash"ni boshlashga ishtiyoqmand qildi.
 
@@ -7227,7 +7227,7 @@ Shunday derkan, u birdan o'tgan hayotidagi yoshlik qo'shnilarini, shuningdek, Te
 
 — Rasmiy tashrif buyurish... Qo'shnilar tabiiy muloqot orqali tanishishi kerak emasmi?
 
-— Haha, Klein, bu sen bexabar bo'lganing uchun. Sen yaqinda ko'p gazeta o'qiding, ammo oilalar va o'rta yoshli ayollarga mo'ljallangan jurnallarni varaqlamading. Ular yillik daromadi yuzdan ming funtgacha bo'lgan oilalarني o'rta tabaqaga qo'yadi. Ular buni butun qirollikning asosi sifatida targ'ib qilib, o'rta tabaqada na zodagonlar va badavlatlarning kibri, na quyi tabaqanikidek qo'pollik borligini maqtaydi. — Benson yengil va xursand tushuntirdi: — Bu jurnallar zodagonlar o'zaro muloqotda qo'llaydigan ko'plab soddalashtirilgan marosimlarni o'rgatadi. Shu bois u o'rta tabaqaning nishoniga aylanadi. Shu tariqa bu samimiy tashriflar, yarim rasmiy tashriflar va rasmiy tashriflar o'rtasidagi farqlarni keltirib chiqaradi.
+— Haha, Klein, bu sen bexabar bo'lganing uchun. Sen yaqinda ko'p gazeta o'qiding, ammo oilalar va o'rta yoshli ayollarga mo'ljallangan jurnallarni varaqlamading. Ular yillik daromadi yuzdan ming funtgacha bo'lgan oilalarni o'rta tabaqaga qo'yadi. Ular buni butun qirollikning asosi sifatida targ'ib qilib, o'rta tabaqada na zodagonlar va badavlatlarning kibri, na quyi tabaqanikidek qo'pollik borligini maqtaydi. — Benson yengil va xursand tushuntirdi: — Bu jurnallar zodagonlar o'zaro muloqotda qo'llaydigan ko'plab soddalashtirilgan marosimlarni o'rgatadi. Shu bois u o'rta tabaqaning nishoniga aylanadi. Shu tariqa bu samimiy tashriflar, yarim rasmiy tashriflar va rasmiy tashriflar o'rtasidagi farqlarni keltirib chiqaradi.
 
 Shunday derkan, u bosh chayqab kulimsiradi.
 
@@ -7300,3 +7300,291 @@ Keksa Neyl yo'talib, juda jiddiy javob berdi:
 — Bugun men o'sha o'ttiz funtlik qarzni sehr bilan uzaman.
 
 Buni qila olasizmi? Kleinning ko'zlari katta ochilib, og'zi ochilib qoldi.
+
+
+# BOB 51: Oddiy Marosim Sehri
+
+Qarz tilxatini sehr bilan uzishmi? U qarzdorini o'limga la'natlamoqchimi yoki qalbaki banknot yasamoqchimi? Men muammoni hal qila olmasligim mumkin, ammo buning o'rniga seni tugatib qo'ya olaman? ...
+
+Kleinning xayolida turli o'ylar paydo bo'lib, u keksa Neylga g'alati qarab qoldi. U politsiyani, yo'q — Tungi Lochinlarni xabardor qilish ehtimolini jiddiy o'yladi.
+
+Keksa Neyl unga bir nazar tashlab, g'ijinib dedi:
+
+— Ko'zlaringda johillik, ahmoqlik va zaif hamda uyatsiz ishonchsizlikni ko'ryapman. Dunn senga Sir Ochuvchilarning shiorini aytmadimi? Istaganingni qil, ammo zarar yetkazma!
+
+Garchi bu shior maxfiy va yovuz Muso Zohidlar Tariqati tashkilotidan kelib chiqqan bo'lsa-da, Muso Zohidlar Tariqati yo'lini tanlagan Beyonderlar uning to'g'riligini o'z tajribasi bilan isbotlagan. Unga qat'iy amal qilib, zarur qo'rquv va hurmatni ko'rsatsa bas, nazoratni yo'qotish xavfi eng kam bo'lardi. Aksi ham xuddi shunday isbotlangan.
+
+— Mendan shubhalanishing — Sir Ochuvchilarga haqorat!
+
+— Kechirasiz. — Klein ikkilanmay uzr so'radi.
+
+U rostdan ham Dunn Smit bir paytlar bu shiorni tilga olganini unutgandi.
+
+Keksa Neyl rostakamiga jahli chiqmagandi. Ko'z ochib yumguncha u kulimsiradi.
+
+— Achinarli. Juda kam Beyonder Ko'ruvchi bo'lishni tanlaydi. Senga yordam beradigan mos shior yo'q.
+
+Lekin mende imperator Rosellening kundaliklari bor... Ha, shiorga qat'iy amal qilishda biroz "rol o'ynash" shamasi bor... Klein birdan bu o'yga keldi va go'yo chuqur o'yda bosh irg'adi.
+
+Keksa Neyl davom etmadi. U yumaloq stoldan vaza va boshqa narsalarni olib, burchakka qo'ydi. Shu zahoti kumush qutidan ham qirmizi-qizil, ham qora shamni chiqardi. Tushuntirdi:
+
+— Oddiy odamlar marosim sehrini qilmoqchi bo'lsa, astromantiya natijalariga amal qilishi yoki mos qo'llanmalarni o'qishi kerak. Ular mos sana va vaqtni tanlashi shart. Masalan, ma'budani ramzlovchi kun — U oy ustidan hukmronlik qilgan davr. Ammo biz Beyonderlar uchun, ayniqsa bu sohada mohir Beyonderlar uchun, bunga hojat yo'q. Bizning o'tkir ruhiy sezgimiz va kuchli Astral Proyeksiyamiz — asosiy narsa.
+
+— Albatta, agar qilayotgan marosim sehringga ishonching bo'lmasa, mos sana va vaqtni tanlaganing ma'qul. U muvaffaqiyat ehtimolini oshiradi.
+
+— Ha, aytmoqchi. Bu bir shartga asoslangan. Qoidalarga qat'iy amal qilishni puxta esda tut!
+
+Keksa Neyl ikki shamni qo'yib, yon tomonga — Kleinga qarab, juda tantanavor dedi:
+
+— Past Sequence Beyonderlari yetarlicha kuchli emas. Ular bajara oladigan deyarli barcha marosim sehri — tashqi kuch va yordam izlashdir. Shu bois sen faqat ma'buda yoki Bo'ronlar Hukmdori kabi pravoslav xudolarni o'ylashing mumkin. Mutlaqo — mutlaqo noma'lum yoki oldindan aytib bo'lmas mavjudotlar bilan muloqotga urinma. Odamlar ularga ishonsa yoki yozib qo'yilgan va'dalar vasvasaga to'la bo'lsa ham!
+
+— Ishon, sira tavakkal qilma. Bir bor urinsang bas, qaytib bo'lmas tubsizlikka sirpanib ketasan. Har qanday harakat yoki qarshilik faqat uni sekinlatadi, yo'nalishini o'zgartirishning iloji yo'q.
+
+— Esda tutaman! — dedi Klein teran ovozda. Biroq u biroz qo'rqdi.
+
+Mening omadni oshirish marosimim, ko'rinishidan, noma'lum va oldindan aytib bo'lmas mavjudotdan kuch izlagan... Qolaversa, men hatto Osilgan odamdek tajribali Beyonder ham aql bovar qilmas deb topgan — odamlarni tumanga tortish kuchini qo'lga kiritdim. Xo'sh... Hech bo'lmasa, men uni tajribali Beyonder deb o'ylayman... Yaxshiyamki, men aqldan ozmadim yoki nazoratni yo'qotish biror alomatim yo'q...
+
+Bundan tashvishlanarkan, u o'zi tashabbus bilan mavzuni o'zgartirdi.
+
+— Demak, Tungi Lochinlar ma'budadan yordam so'rashi kerakmi?
+
+— Bo'ronlar Hukmdoriga duo qilsang, hech kim seni to'xtatmaydi. Biroq biz marosim sehrimizdan U yomon niyat bilan javob beradimi-yo'qmi aniqlay olmaymiz. Natija oldindan aytib bo'lmas tarzda buziladi. — Keksa Neyl hazil ohangida Kleinni bu fikrdan voz kechirdi.
+
+"Eng yaxshi" degan narsa yo'q edi, faqat "zarur" bor edi!
+
+Nasihatlaridan so'ng keksa Neyl qirmizi-qizil shamni olib dedi:
+
+— Oy gullari va to'q qizil sandaldan yasalgan shamlardan foydalanib, u marosim sehrida ma'budaning Qirmizilik Bekasi sifatidagi kimligini ramzlaydi. — U qora shamlarga ishora qildi: — Tungi vanil va uyqu gullaridan yasalgan shamlar tunni ramzlaydi.
+
+Shunday derkan, qora shamni yumaloq stolning chap yuqori uchiga, qizil shamni esa o'ng yuqori uchiga qo'ydi.
+
+— Nega ma'budani faqat ikki sham bilan ramzlaymiz? U yana Osoyishtalik va Sukunat Hokimasi, Falokat va Dahshat Malikasi hamdir.
+
+Keksa Neyl kulimsiradi.
+
+— To'g'ri. Bu — men sen so'rashingni istagan narsa.
+
+— Tanazzuldan oldin Muso Zohidlar Tariqatining cherkov bilan juda yaxshi munosabati bor edi. Ularning marosim sehriga oid e'tiqod va natijalari bizga kuchli ta'sir qilgan.
+
+— Ular barcha narsalar son deb hisoblaydi. Har bir sonda ruhiyat bor, marosim sehrida 0 noma'lumlikni yoki Xaosni ramzlaydi. U koinot tug'ilishidan oldingi holatini ramzlaydi. 1 boshlanishni, birinchi Yaratguvchini ramzlaydi. 2 Uning tanasidan paydo bo'lgan olam va turli xudolarni ramzlaydi. 3 xudolar va moddiy narsalar o'rtasidagi aloqani — hamma narsani yaratishni ramzlaydi. Bu yerda ikki sham ma'budani, uchinchi sham esa seni ramzlaydi.
+
+— Qaysi ikki sham va qaysi ikki ramz bo'lishi marosim sehridan kutilgan ta'sirga bog'liq.
+
+Uch hamma narsani tug'diradimi? Hamma narsa uchdan kelib chiqadimi? Klein o'tgan hayotidan ayrim narsalarni eslamasdan turolmadi.
+
+Kleinning diqqat bilan tinglayotganini ko'rgan keksa Neyl uchinchi shamni olib dedi:
+
+— Bu "men"ni ramzlovchi sham. Bu juda oddiy sham, unga faqat ozgina yalpiz qo'shilgan. Esda tut, atirgul, limon, yalpiz, oy guli, tungi vanil va uyqu guli kabi o'simliklar ma'buda tomonidan sevimli va aziz.
+
+— Boshqa nuqtai nazardan qaraganda, uch sham har bir insonning tanasi, ruhiyati va xudoligini ramzlaydi.
+
+Ta'rifni tugatgach, keksa Neyl uchinchi shamni yumaloq stolning o'rtasiga qo'ydi.
+
+So'ng u tayyorlangan "To'lin Oy Mohiyat Moyi" shishasini, Qora Muqaddas Gerb o'yilgan ulkan qozonni, dabdabali naqshli kumush pichoqni, bir piyola suvni va bir likopcha dag'al tuzni chiqardi.
+
+— Marosim sehrida mohir bo'lmagan Beyonderlarga qo'ng'iroqlar, billur sharlar, kumush piyolalar, tutatqi yoki boshqa qo'shimcha narsalar kerak. Biroq Sir Ochuvchilar va Ko'ruvchilarga bunga hojat yo'q. Bu artefaktlarning o'zi yetarli.
+
+Keksa Neyl qarz tilxati bo'lgan soxta echki terisidan pergamentni qozon tagiga qo'yib, maxsus patqalam bilan bir uchini bosib turdi. Kleinga o'girilib dedi:
+
+— Marosim sehriga toza ruhiy muhit kerak, u yerda seni hech narsa bezovta qilmasligi kerak. Bu esa uni yaratishimizni talab qiladi. Qadamlar shunday: avval Tafakkurga kirasan. Diqqatingni jamlab, qo'shimcha narsalar bilan kuchimizni tortib chiqarib, uni atrofimizda qurasan. Masalan, Rey Biberning uyida Muqaddas Tun Kukuni ishlatilgan, men esa marosim kumush xanjarini ishlataman.
+
+— Butun jarayon davomida biz istagan natijaga ko'ra ramziylik va mos afsunni tasdiqlashimiz kerak. Afsunlarni Hermes tilida qilgan ma'qul, chunki qadimiy Hermes Tabiatdan kelib chiqqan. U xuddi qadimiy Ajdar tili va qadimiy Elf tilidek. Ta'siri juda bevosita, zarur yashirin va himoyadan mahrum. U afsun aytuvchini osongina xatarga soladi. Shu bois u o'zgartirilgan. Biroq u samaraliroq.
+
+— Mayli, men marosim sehriga diqqatimni jamlashim kerak. Senga boshqa hech narsa tushuntirmayman. Kuzatib va tinglab e'tibor ber. Biror muammoni eslab qol va hammasi tugaganda so'ra.
+
+— Mayli. — Klein ikki qadam orqaga tisarilib, nigohini keksa Neylga qadadi.
+
+Keksa Neylning ko'zlari tez qoraydi, atrofidagi ko'rinmas shamol aylandi. U bir lahza jim turib, chapdan o'ngga, so'ng yuqoridan pastga, ruhiyatini ishlatib ishqalanish hosil qilib, uch shamni ketma-ket yoqdi. Shundan so'ng kumush pichoqni olib, uni dag'al tuzga sanchdi. So'ng Hermes tilida afsun o'qidi:
+
+— Men seni muqaddaslayman, sof kumush tig'!
+
+— Men seni tozalayman va poklayman, toki bu marosimda menga xizmat qilasan!
+
+— ...
+
+— Abadiy Tun ma'budasi, Qirmizilik Bekasi nomi bilan...
+
+— Sen muqaddaslanding!
+
+Qisqa, ammo kuchli bir bo'g'indan so'ng keksa Neyl kumush pichoqni sug'urib, uni bir piyola tiniq suvga sanchdi. So'ng uni ko'tarib, yumaloq stoldan tashqaridagi bo'shliqqa ishora qildi. Tig' uchini chekkaga qaratib, bir qadam oldinga tashlab, yumaloq stolni aylandi. Tashlagan har bir qadami Kleinga kumush pichoqdan ko'rinmas energiya otilib chiqayotganday his qildirdi. U ruhiyatga to'la bo'lib, havo bilan bog'lanib, butunlay yopiq devor hosil qildi. Bir aylanib chiqqach, mehrob atrofdan butunlay ajratildi.
+
+Keksa Neyl yumaloq stol oldida turib, kumush pichoqni qo'ydi. To'lin Oy Mohiyat Moyi shishasini olib, qora, to'q qizil va oddiy shamlarga uch tomchidan tomizdi.
+
+Vishsh! Yupqa tuman taralib, hamma narsa go'yo sir-sinoatga burkangandek bo'ldi.
+
+Keksa Neyl shisha idishni qo'yib, soxta echki terisidan pergamentga ikki daqiqa jimgina qaradi. So'ng patqalamni olib, o'zi nazorat qiladigan bir belgi chizdi — barcha mazmunni ramkaga olgan kvadrat, bu u qarzni nazorat qilayotganini bildirardi. Shundan so'ng yana bir "xoch" chizdi, bu uning bekor qilinganini bildirardi.
+
+Bu bosqichga yetgach, u bir qo'li bilan pergamentni olib, ikkinchi qo'li bilan qoshlari orasini chertib, Ruhiy Ko'rishni ishga tushirdi.
+
+Yana bir ko'rinmas va jo'shqin energiya gulladi, keksa Neyl afsun pichirladi:
+
+— Men qorong'i tun kuchidan so'rayman.
+
+— Men qirmizilik kuchidan so'rayman.
+
+— Men ma'budaning mehribon marhamatidan so'rayman.
+
+— Iltimos, menga bu qarz tilxatini to'lash uchun mablag' bering.
+
+— Tungi vanil, qizil oyga mansub o't, iltimos, afsunimga kuchingni ato et!
+
+— Oy guli, qizil oyga mansub o't, iltimos, afsunimga kuchingni ato et!
+
+— ...
+
+Klein yon tomondan tinglarkan butunlay dovdirab qoldi. Unda turli o'ylar paydo bo'ldi. Bunday afsun ish berishi mumkinmi? Garchi u yozma Hermesdan o'qilgan bo'lsa-da... Bu juda sodda va oddiy emasmi? Ma'buda g'azablanib, qarzni necha barobar oshirib qo'ymasmikan?
+
+Shu payt sham yog'dusi birdan yorishdi!
+
+Keksa Neyl afsunini tugatgach, ikki daqiqa ko'zlarini yumdi. To'lin Oy Mohiyat Moyini olib, uch shamga bir tomchidan tomizdi. Shu zahoti pergamentni olib, uni "men"ni ramzlovchi shamga yaqinlashtirdi. U yongach, darrov uni qozonga uloqtirdi.
+
+Keksa Neyl yana ko'zlarini yumib, go'yo qarz tilxatining yonishini sezdi. Bir lahzadan so'ng ko'zlarini ochib, qozondagi qora Muqaddas Gerbga qaradi.
+
+Pergament allaqachon butunlay kuyib bitgandi.
+
+— Bekani ulug'lasin! — Keksa Neyl ko'kragiga to'rt joyda chertib, qirmizi oy shaklini hosil qildi. So'ng shamlarni yoqqaniga teskari tartibda o'chirdi. Hammasini tugatgach, kumush pichoq bilan atrofidagi ko'rinmas devorni yirtdi. Darrov ulkan shamol qo'zg'aldi, keksa Neyl yengil tin oldi.
+
+— Bo'ldi.
+
+— Shumi? — gangib so'radi Klein. — Qarz tilxati uzildimi? Qanday?
+
+— Men ham bilmayman. Qanday bo'lmasin, u o'rinli tarzda uzilad, — dedi keksa Neyl jilmayib, qo'llarini ko'tarib.
+
+Bu... Klein qanday ifoda yoki so'z bilan javob berishni bilmadi. Bu biroz ishonchsiz emasmi?
+
+# BOB 52: Tomoshabin
+
+— O'sha jin urgan qarz tilxati haqida o'ylashni bas qil. Marosim sehri haqida gaplashaylik. — Keksa Neyl shamlar, qozon, kumush pichoq va boshqa narsalarni bemalol ifoda bilan yig'ishtirdi.
+
+Klein o'tgan hayotidagi amerikaliklardek yelka qisgisi keldi, ammo oxir-oqibat o'zini bunday janobga yarashmaydigan ishga qiya olmadi. U diqqatini marosim sehriga qaratib, o'zini gangitgan batafsil savollarni berib, ularga javob oldi.
+
+Masalan, afsunlarning o'ziga xos shakli bor edi. Ular qondirilib, asosiy ma'no Hermes tilida ifodalansa bas, qolgani ijodga qoldirilardi. Albatta, kufr yoki hurmatsiz ta'riflar mutlaqo taqiqlangandi.
+
+Sirli ilm darsi peshinga qadar davom etdi, so'ng keksa Neyl ikki bor yo'taldi.
+
+— Zouteland ko'chasiga qaytishimiz kerak. — Shunday derkan, u tushunarsiz tarzda g'ing'illadi: — Bu jin urgan materiallarni olish uchun sevimli nonushtam-dan ayrildim.
+
+Klein atrofga ham kulgili, ham gangib qaradi.
+
+— Janob Neyl, sizda oshpaz bormi? Yoki ovqat pishirishga mas'ul xizmatkor?
+
+Haftasiga o'n ikki funt maosh bilan bir necha xizmatkor yollasa bo'lardi! Gazetalarga ko'ra, yashash va ovqat ta'minlangan holda, oddiy oshpaz yollash haftasiga o'n ikkidan o'n besh soligacha tushardi. Unga funt ham kerak emasdi. Mayda-chuyda ish qiladigan xizmatkor yana ham arzonroq edi. Ularning haftalik maoshi uch soli-yu olti pensdan olti soligacha edi. Albatta, ularda biror oshpazlik mahorati bo'lishiga umid qilib bo'lmasdi.
+
+Hm, bu noto'g'ri. Janob Neylning o'ttiz funtlik qarzi bilan, oshpaz yoki xizmatkor yollamasligi tabiiy... Ko'rinishidan, men yana so'ramasligim kerak bo'lgan savol berdim...
+
+Klein savolidan afsuslanarkan, keksa Neyl e'tibor bermay bosh chayqadi.
+
+— Men uyda tez-tez marosim sehri qilaman, g'ayrioddiy narsalarni tadqiq qilaman va mos hujjatlarni o'qiyman, shu bois oddiy odamlarni oshpaz, boshqaruvchi yoki xizmatkor qilib yollamayman, buning iloji ham yo'q. Men faqat joyni muntazam tozalashga birovni yollayman. Oddiy odam bo'lmasa, ular bunaqa ishni qilishga rozi bo'larmidi deb o'ylaysanmi?
+
+— Men ahmoq savol berdim shekilli. Ehtimol, men uyda sirli ilmga aloqador hech narsa qilmaganim uchundir, — tushuntirdi Klein o'zini mazax qilib.
+
+Keksa Neyl allaqachon o'rnidan turib, dumaloq namat qalpog'ini kiygan, eshikdan chiqarkan vaysardi:
+
+— Tovada qovurilgan g'oz jigari hidi kelayotganga o'xshaydi... Qarz tilxati butunlay uzilsa bas, men, albatta, bittasini olaman! Tushlikka, albatta, olma sharbatiga burkalgan qovurilgan cho'chqa go'shti yeyman. Yo'q, bu yetarli emas. Men, albatta, ezilgan kartoshka qo'shilgan kolbasani yeyishim kerak...
+
+Meni ochiqtiryapsiz... Klein og'zining suvini yutib, keksa Neylga yetib oldi va yaqindagi jamoat aravasi bekati tomon yurdi.
+
+Zouteland ko'chasiga qaytgach, keksa Neyl aravadan tushgan zahoti birdan undadi:
+
+— Nima ko'ryapman? Ma'budam, nima ko'ryapman?
+
+U birdan o'n yetti-o'n sakkiz yoshli yigitdek chaqqon bo'lib qoldi. U tez yo'l chetiga kelib, bir narsani oldi.
+
+Klein qiziqsinib yaqinlashib, sinchiklab qaradi. U bu nafis ishlangan hamyon ekanini angladi. Tajribasi yo'qligi sababli, u to'q jigarrang hamyon ho'kiz terisidanmi yoki qo'y terisidanmi ekanini zo'rg'a ajrata olardi, ammo hamyon yonida tikilgan kichik och-ko'k logoni payqadi — qanotlarini yoygan oq kaptar, go'yo uchishga shay turgandek. Bu Kleinning birinchi taassuroti edi.
+
+Ikkinchi payqagan narsasi — bo'rtib turgan hamyondagi bir dasta banknot edi. Yigirmadan ortiq kulrang, qora siyoh bilan bosilg'an banknot — tilla funtlar!
+
+Keksa Neyl hamyonni ochib, banknotlarni chiqardi. Sinchiklab qaragach, darrov kulimsiradi.
+
+— O'n funtlik banknotlar. Hurmatli Asoschi va Himoyachi, Vilyam I. Voy, ma'budam, jami o'ttizta banknot. Bir necha besh funtlik, bir funt-u besh solilik banknotlar ham bor.
+
+Uch yuz funtdan ko'pmi? Bu har ma'noda juda katta pul! Men buni o'n yilda ham topa olmasam kerak... Kleinning nafasi beixtiyor og'irlashdi. Tilla funtlar miqdori ulkan bo'lgani uchun, bunday hamyonni topish o'tgan hayotidagi bir chamadon banknot topish bilan teng edi.
+
+— Qaysi janob tushirib qoldirdikin... U oddiy odam bo'lolmaydi, — tahlil qildi Klein xotirjam. Bunday hamyon ochiq-oydin ayolniki emasdi.
+
+— U kimligiga ahamiyat berish shart emas, — dedi keksa Neyl kulimsirab. — Biz bashorat qilib, o'zimizniki bo'lmagan pulni olishga urinmadik-ku. Shu yerda bir oz kutaylik. Ishonamanki, janob tez orada uni qidirib qaytadi. U kim bo'lishidan qat'i nazar, voz kechib bo'lmaydigan narsa.
+
+Klein yengil nafas oldi. Unda keksa Neylning axloqiga nisbatan butunlay yangi tushuncha paydo bo'ldi. U ma'budaning ato qilganini bahona qilib, qarzini uzib qo'yishidan ancha xavotirda edi. U buning oldini olish va uni boshqacha ko'ndirish yo'lini hamon o'ylab turardi.
+
+Bu "istaganingni qil, ammo zarar yetkazma"mi? Klein birdan yangi narsa o'rgandi.
+
+Ikkovi ko'chada bir daqiqadan ko'p kutmadi, hashamatli to'rt g'ildirakli arava uchib keldi. Uning yon tomonida qanotlarini yoygan kaptarli och-ko'k logo bor edi. Arava to'xtadi, qora rasmiy kostyum va xuddi shu rangdagi galstuk-kapalakdagi o'rta yoshli kishi tushdi. U hamyonga qarab, qalpog'ini yechib, xushmuomalalik bilan dedi:
+
+— Janoblar, bu mening xo'jayinimning hamyoni bo'lsa kerak.
+
+— Logoyingiz hammasiga dalil, ammo men qo'shimcha tasdiq qilishim kerak. Bu barcha taraflar oldidagi mas'uliyat uchun. So'rasam bo'ladimi, hamyonda qancha pul bor? — javob berdi keksa Neyl xushmuomalalik bilan.
+
+O'rta yoshli kishi esankiradi, so'ng deyarli darrov o'zini mazax qilib dedi:
+
+— Boshqaruvchi sifatida, men xo'jayinning hamyonida qancha pul borligini bilmayman. Kechirasiz. Iltimos, so'rashga ruxsat bering.
+
+— Mayli. — Keksa Neyl unga bilganicha qilishni ishora qildi.
+
+O'rta yoshli kishi aravaning yoniga borib, deraza orqali ichkaridagi kishi bilan suhbatlashdi. U yana Klein va keksa Neylga yaqinlashib jilmaydi.
+
+— 300 funtdan ko'p, ammo 350 funtdan kam. Xo'jayinim aniq sonni eslamaydi.
+
+Eslamaydi... Bu rostdan ham g'irt boy odam ekan. Menda shuncha pul bo'lganda, men, albatta, uni qayta-qayta sanardim... Klein havasga to'ldi.
+
+Keksa Neyl bosh irg'ab, hamyonni qaytarib berdi.
+
+— Ma'buda guvoh, bu — seniki.
+
+O'rta yoshli kishi hamyonni olib, bir chamalab, so'ng uchta o'n funtlik banknotni chiqardi.
+
+— Xo'jayinim — ser Dyuivill. U axloqingizni maqtamoqchi. Bu halol odam olishi kerak bo'lgan narsa. Iltimos, rad etmang.
+
+Ser Dyuivill? Dyuivill Jamg'armasini tashkil etgani-mi? Ishchilar sinfiga arzon ijara kvartiralari bergan o'sha ser Dyuivill? Klein bu ismni darrov esladi. U akasi hurmat qiladigan, ammo voqelikka asoslanmagan deb hisoblaydigan ritsar edi.
+
+— Rahmat, ser Dyuivill. U mehribon va saxiy janob. — Keksa Neyl tortinmay uchta banknotni oldi.
+
+Ser Dyuivillning aravasi ketganini kuzatib, u atrofda hech kim yo'qligini ko'rgach, Kleinga o'girildi. Banknotlarni chertib kulimsiradi.
+
+— O'ttiz funt. Qarz tilxati uzildi.
+
+— Aytdim-ku, u o'rinli tarzda uzilad.
+
+— Bu — sehrning kuchi.
+
+...Jin ursin sehrning kuchini! U rostdan ham ish berarkan-ku?! Klein yana bir bor dovdirab qoldi.
+
+Bir necha daqiqadan so'ng u binoning zinapoyasiga kirib, qo'riqlash kompaniyasiga borarkan, gangib so'radi:
+
+— Janob Neyl, nega ko'proq pul so'ramadingiz?
+
+— Ochko'z bo'lma. Marosim sehri qilganda ochko'z bo'lmaslikka e'tibor berish kerak. Mo''tadillik — uzoq yashashni istagan har bir Sir Ochuvchiga zarur muhim fazilat, — tushuntirdi keksa Neyl xursand bo'lib.
+
+...
+
+Ulkan bal zalida bir necha qandilda shamlar yonardi, ular odamlarning ko'nglini taskinlovchi hid taratardi. Shamlarning son-sanog'i ko'pligi tufayli, ular gaz chiroqlariniknidan sira qolishmaydigan yorug'lik berardi.
+
+Uzun stollarda tovada qovurilgan g'oz jigari, qovurilgan bifshteks, qovurilgan tovuq, qovurilgan til-baliq, Desi ustritsalari, qo'y sho'rvasi, qaymoqli sho'rva va boshqa lazzatli taomlar bor edi. Bundan tashqari, bir necha shisha Tuman Shampani, Aurmir uzum vinosi va Sautvill qizil vinosi bor edi. Ularning bari yorug'lik ostida vasvasaga soluvchi yog'du sochardi.
+
+Qizil jiletkadagi xizmatkorlar billur piyolali laganlar ko'tarib, nafis yoki dabdabali kiygan janoblar va xonimlar orasida yugurib yurardi.
+
+Audrey Hall yoqali, baland belli, oqimtir-oq ko'ylak kiygandi, unga yeng pardalari qo'shilgandi. Korseti zich yopishgan, ko'p qatlamli etagi krinolin qafasi bilan mukammal puflangandi. Uzun sariq sochi nafis tugunga o'ralgan, taqqan sirg'a, marjon va uzuklari yorqin yarqirardi. Oyog'ida atirgul va olmoslar bilan tikilgan bir juft oq raqs tuflisi bor edi.
+
+Necha ich yubka kiyganman o'zi? Beshmi? Oltimi? Oq ipak qo'lqop kiygan Audrey o'ng qo'li bilan krinolinini ohista siypaladi. Chap qo'lida bir bokal tiniq shampan ushlab turardi.
+
+Audrey o'zining odatdagi holiga sira o'xshamasdi — odatda o'zini bazm markaziga qo'yib, diqqatni o'ziga qaratardi. Buning o'rniga u to's-to'polondan qochib, frantsuz derazasi yonidagi osilgan pardalar soyasida jimgina turardi.
+
+U shampandan bir ho'plab, go'yo o'zini begona his qilgandek, olomonni kuzatdi.
+
+Graf Vulfning kenja o'g'li vikont Konradning qizi bilan gaplashyapti. U aytganini ta'kidlash uchun bilagini harakatlantirishni yoqtiradi. Hm, bilak harakati qancha katta bo'lsa, gapi shuncha ishonchsiz bo'ladi. Bu tajribadan olingan narsa... U boshqalarni kamsitib, o'zini ko'tarishdan to'xtay olmaydi. Biroq u o'zini aybdor his qilmasdan turolmaydi. Buni gapidan va imo-ishorasidan ko'rsa bo'ladi...
+
+Gertsoginya Della bugun chap qo'li bilan kulimsirarkan og'zini qayta-qayta to'sdi. A, tushundim. U sof okean-ko'k zumradini ko'z-ko'z qilyapti... Uning eri Negan gertsogi bir necha Konservativ zodagon bilan vaziyatni muhokama qilyapti. Bazm boshlangandan beri u Della gertsoginyani bir bor qidirdi... Ular deyarli hech qachon ko'z urishtirmaydi. Balki ular o'zlari ko'rsatgandek bir-birini sevishmas...
+
+Baron Larri Parnes xonimni yetti marta kuldirdi. Bu juda normal, hech qanday g'alati joyi yo'q, ammo nega u eriga aybdor ko'zlar bilan qaraydi? Voy, ular ajralib ketishdi... Yo'q, ular ketayotgan yo'nalishlar bog'qa olib boradi...
+
+...
+
+Hashamatli bazmda Audrey o'tmishda payqamagan ko'plab tafsilotni ko'rdi. Bir lahza u o'zini opera tomosha qilayotgandek deyarli ishondi.
+
+Hammasi yaxshi opera aktyori... U jimgina xo'rsindi, ko'zlari tiniq qoldi.
+
+Shu payt u birdan bir narsani sezib, boshini burdi. Nigohini tashqaridagi katta balkonning qorong'i burchagiga qadadi.
+
+Soyada ulkan bir oltin retriver jimgina o'tirardi. U yarim tanasini zulmatga yashirib, ichkaridagi Audreyga qarab turardi.
+
+Syuzi... Audreyning og'zi cheti uchdi, ifodasi bir zumda o'zgardi. U boshqa Tomoshabin holatini saqlay olmadi.
+
