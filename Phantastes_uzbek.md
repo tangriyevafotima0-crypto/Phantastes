@@ -3419,3 +3419,1026 @@ Melissa bir lahza qotib qoldi, so'ng birdan hovliqib gapirdi:
 — Ularga qiyoslaganda, biz rostdan ham juda omadlimiz. Maoshingni bu ishga isrof qilma. Qolaversa, men Smyrin xonimning novvoyxonasini yaxshi ko'raman.
 
 Singlim, nega sening reaksiyang xayolimdagidan butunlay boshqacha bo'ldi... Singlisining gapini eshitib, Kleinning ifodasi bo'm-bo'sh bo'lib qoldi.
+
+
+# BOB 24: Tiyin Sanovchi
+
+Tashqaridagi osmon asta-sekin tilla rangga bo'yalarkan, Klein Melissaning ko'ziga qaradi. U bir lahza nima deyishini bilmadi; tayyorlagan gaplaridan birortasi ham ishga yaramadi. U ikki bor yengilgina yo'taldi-da, miyasini tez ishlatdi.
+
+— Melissa, bu maoshni isrof qilish emas. Kelajakda mening hamkasblarim, shuningdek, Bensonning hamkasblari ham kelishi mumkin. Ularni shunaqa joyda kutib olamizmi? Men va Benson uylanib, xotin olganimizda ham, hamon ikki qavatli karavotda uxlaymizmi?
+
+— Hech qaysingizda hali kelin yo'q-ku? Bir oz kutib, shu orada ko'proq pul yig'ib qo'ya olamiz, — javob berdi Melissa mantiqan lo'nda qilib.
+
+— Yo'q, Melissa. Bu — jamiyat qoidasi. — Klein dovdirab qolib, faqat oliy tamoyillarga tayanishi mumkin edi. — Haftasiga uch funt topyapman ekan, haftasiga uch funt topadigan odamga o'xshashim kerak.
+
+Rostini aytsam, avval boshqalar bilan kvartira ijaraga olib yashagan Zhou Mingrui hozirgi yashash sharoitiga Klein sifatida begona emasdi. U bunga juda o'rganib qolgandi, ammo aynan o'tmish tajribasi tufayli bunday muhit qiz uchun qanchalik noqulay ekanini bilardi. Qolaversa, uning maqsadi — Beyonder bo'lish va uyga qaytish yo'lini topish uchun sirli ilmni o'rganish edi. Kelajakda u, albatta, uyda ayrim sehrli marosimlar o'tkazardi. Kvartira binosida odam ko'p bo'lishi voqealar yuz berishiga moyil qilardi.
+
+Klein Melissa yana bahslashmoqchi bo'lganini ko'rib, shoshib qo'shib qo'ydi:
+
+— Xavotir olma. Bir qavatli alohida uy olmoqchi emasman, ehtimol, qator uydan. Asosiysi — o'zimizniki deb atasa bo'ladigan hammomi bo'lsa bas. Qolaversa, men ham Smyrin xonimning noni, Tingen pechenyesi va limonli keklarini yaxshi ko'raman. Avval Temir Xoch ko'chasi va Nargis ko'chasi yaqinidagi joylarni ko'rib chiqsak bo'ladi.
+
+Melissa lablarini biroz cho'chchaytirib, bir muddat jim turdi, so'ng sekin bosh irg'adi.
+
+— Qolaversa, men ham ko'chishga shoshilmayapman. Benson qaytishini kutishimiz kerak, — dedi Klein kulimsirab. — Eshikni ochib, hech narsa topmasa, uni hayratga solib qo'ya olmaymiz-ku, a? Tasavvur qil, u hayratdan: "Narsalarim qani? Aka-singillarim qani? Uyim qani? Bu mening uyimmi? Adashdimmi? Ma'budam, agar bu tush bo'lsa, meni uyg'oting. Bir necha kun yo'q bo'lganimda nega uyim g'oyib bo'ldi?!" deydi.
+
+Uning Benson ohangiga taqlidi Melissani beixtiyor kulgiga soldi, ko'zlari qisilib, yuzaki o'ydim chaqnoqlari ko'rindi.
+
+— Yo'q, janob Franki, albatta, Bensondan kvartira kalitlarini topshirishini olish uchun eshik oldida poylab turardi. Benson hatto yuqoriga ko'tarila ham olmasdi. — Qiz xasis uy egasini kamsitdi.
+
+Moretti xonadonida ularning bari janob Frankini har bir arzimas va katta ish uchun masxara qilishni yaxshi ko'rardi. Bularning bari bu odatni boshlab bergan Bensonning sharofatidan edi.
+
+— Ha, u bizdan keyingi ijarachilar uchun qulflarni almashtirmasligi aniq, — ma'qulladi Klein jilmayib. U eshikka ishora qilib hazil qildi: — Melissa xonim, "Kumush Toj" restoraniga nishonlash uchun boramizmi?
+
+Melissa yengilgina xo'rsinib dedi:
+
+— Klein, Selenani bilasanmi? Sinfdoshim va yaqin do'stim?
+
+Selena? Kleinning xayolida sharob-qizil sochli, to'q jigarrang ko'zli bir qizning siymosi paydo bo'ldi. Uning ota-onasi Abadiy Tun ma'budasi bandalari edi. Ular qizga avliyo Selena sharafiga, marhamat tilab ism qo'yishgandi. U hali o'n oltiga to'lmagandi, Melissadan yarim yosh kichik edi. U baxtli, quvnoq va ochiqko'ngil qiz edi.
+
+— Ha. — Klein tasdiqlab bosh irg'adi.
+
+— Uning akasi Kris — advokat. U ham hozir haftasiga uch funtga yaqin topadi. Uning kelini esa yarim stavkada mashinkachi bo'lib ishlaydi, — tasvirladi Melissa. — Ular to'rt yildan ko'proq vaqtdan beri unashtirilgan. Nikohdan keyin munosib va barqaror hayot kechirish uchun ular hozirga qadar pul yig'ishmoqda. Ular hali to'y qilishmagan va kamida yana bir yil kutishni rejalashtirishyapti. Selenaning aytishicha, akasi kabi odamlar ko'p. Ular odatda yigirma sakkizdan keyin uylanadi. Oldindan tayyorgarlik ko'rib, pul yig'ishing kerak. Pulingni sovurma.
+
+Bu shunchaki restorandagi bir mahal ovqat-ku. Menga va'z aytishga hojat bormi... Klein kulishni yoki yig'lashni bilmay qoldi. Bir necha soniya o'ylab dedi:
+
+— Melissa, men allaqachon haftasiga uch funt topyapman, har yili oshib boradi ham. Xavotir olishing shart emas.
+
+— Lekin biror kutilmagan favqulodda holat uchun bir oz pul yig'ib qo'yishimiz kerak. Masalan, agar o'sha qo'riqlash kompaniyasi birdan yopilib qolsa-chi? Bir sinfdoshimning otasining kompaniyasi sinib ketgandi. U pristanda vaqtinchalik ish topishga majbur bo'ldi, ularning yashash sharoiti bir zumda dahshatli bo'lib qoldi. U noiloj o'qishni tashlashga majbur bo'ldi, — maslahat berdi Melissa jiddiy ifoda bilan.
+
+...Klein qo'lini cho'zib, yuzini yopdi.
+
+— B-bu qo'riqlash kompaniyasi va hukumat... Ha, hukumat bilan ayrim aloqalari bor. U osongina yopilib qolmaydi.
+
+— Lekin hukumatning o'zi ham barqaror emas. Har saylovdan keyin, hokimiyatdagi partiya o'zgarsa, ko'p odam lavozimidan ayriladi. Hammasi to'palon bo'lib ketadi, — qarshi javob berdi Melissa bo'sh kelmay.
+
+...Singlim, sen rostdan ham ko'p narsa bilarkansan... Klein jahli ichida hazil topib, bosh chayqadi.
+
+— Mayli unda...
+
+— Unda kechagi qolgan ovqatdan bir oz sho'rva qaynataman. Menga bir oz tovada qovurilgan baliq, bir bo'lak qora murchli mol go'shti, kichik bir shisha sariyog' va bir piyola solodli pivo olib kel. Qanday bo'lmasin, baribir ozmi-ko'pmi nishonlash bo'lsin.
+
+Bular Temir Xoch ko'chasidagi sayyor savdogarlar odatda sotadigan narsalar edi. Bir bo'lak tovada qovurilgan baliq olti-sakkiz pens; unchalik katta bo'lmagan bir bo'lak qora murchli mol go'shti besh pens; bir piyola solodli pivo bir pens; chorak funtcha keladigan bir shisha sariyog' to'rt pens edi, ammo bir funt sariyog' olsang, atigi bir soli-yu uch pensga tushardi. Asl Klein bayram kunlari masalliq olishga mas'ul edi, shu bois u narxlarga begona emasdi.
+
+Klein xayolan Melissaga bir soli-yu olti pensga yaqin pul kerakligini hisobladi. Shu bois ikkita bir-soli banknotini chiqardi.
+
+— Mayli. — Melissa Kleinning taklifiga e'tiroz bildirmadi. Yozuv qurollari solingan sumkasini qo'yib, banknotlarni oldi.
+
+Singlisi sariyog' uchun kichik bir shisha va boshqa taomlar uchun qozonlar olib, jadal eshik tomon yurganini ko'rgan Klein bir oz o'ylab, unga baqirdi:
+
+— Melissa, qolgan pulga bir oz meva ham ol.
+
+Temir Xoch ko'chasida boshqa joylardan past sifatli yoki aynib borayotgan mevalarni sotib oladigan ko'plab savdogarlar bor edi. Aholi bundan jahli chiqmasdi, chunki narxlar nihoyatda arzon edi. Chirigan qismlarini olib tashlagandan keyin ulug'vor ta'mlardan bahramand bo'lsa bo'lardi — bu arzon bir rohat edi.
+
+Shunday derkan, Klein bir necha jadal qadam tashlab oldinga bordi va cho'ntagidagi qolgan mis tiyinlarni chiqarib, singlisining kaftiga tiqdi.
+
+— A? — Melissaning jigarrang ko'zlari akasiga hayron qaradi.
+
+Klein ikki qadam orqaga tisarilib jilmaydi.
+
+— Smyrin xonimnikiga borishni unutma. O'zingni kichik bir limonli kek bilan mukofotla.
+
+— ... — Melissaning og'zi katta ochildi, u ko'zlarini pirpiratdi. Oxiri faqat bir so'z aytdi: — Mayli.
+
+U tez o'girilib, eshikni ochdi va zinapoya tomon yugurdi.
+
+...
+
+Daryo yerni yorib o'tar, qirg'oqlar bo'ylab kedr va zarang daraxtlari tizilgan; havo shu qadar toza ediki, kishini mast qilardi.
+
+Suhbatini yopib qo'yishga kelgan Klein revolverini o'zi bilan olgandi. Hassasini ushlab, jamoat aravasiga olti pens to'ladi. Sementlangan so'qmoq bo'ylab yurib, ko'kalamzorlar soyasidagi uch qavatli tosh binoga yaqinlashdi. Bu Tingen universitetining ma'muriyat binosi edi.
+
+— Loen qirolligining ikki yirik universitetidan biri bo'lishga rostdan ham loyiq ekan... — Bu yerga birinchi marta kelgan Klein yurib borarkan, xo'rsindi.
+
+Tingen universitetiga qiyoslaganda, daryoning narigi tomonidagi Xoy universitetini faqat xunukkina deb ta'riflash mumkin edi.
+
+— Tort-ho!
+
+— Tort-ho!
+
+Ovozlar asta-sekin yaqinlashdi, ikkita eshkakli qayiq Xoy daryosi bo'ylab oqimga qarshi suzib o'tdi. Eshkaklar tartibli va ohangdor tarzda eshilardi. Bu Loen qirolligidagi barcha universitetlar orasida mashhur eshkak eshish sporti edi.
+
+O'qishini moliyalashtirish uchun stipendiyaga muhtoj bo'lgan Klein, Uelch va boshqalar Xoy universitetining eshkak eshish klubiga qo'shilishgandi va bu borada ancha mohir edilar.
+
+— Mana shu — yoshlik... — Klein to'xtab, uzoqqa qaradi va orziqib xo'rsindi. Yana bir hafta o'tib, maktab yozgi ta'tilga chiqqach, bunday manzaralar endi ko'rinmasdi.
+
+Daraxtlar soyasidagi yo'l bo'ylab borib, Klein bir uch qavatli tosh bino oldida to'xtadi. O'zini muvaffaqiyatli ro'yxatdan o'tkazgach kirdi va o'sha kuni unga g'amxo'rlik qilgan kishining kabinetini osongina topdi.
+
+Taq! Taq! Taq! U yarim yopiq eshikni yengilgina taqillatdi.
+
+— Kiring. — Ichkaridan bir erkak ovozi yangradi.
+
+Oq ko'ylak va qora frak kiygan o'rta yoshli o'qituvchi Kleinning kirib kelganini ko'rib qoshini chimirdi.
+
+— Suhbatga hali bir soat bor.
+
+— Janob Ston, meni hali ham eslaysizmi? Men katta dotsent Koenning shogirdi, Klein Moretti. Siz mening tavsiyanomamni avval o'qigan edingiz. — Klein qalpog'ini yechib jilmaydi.
+
+Xarvin Ston qora soqolini siypalab, hayron so'radi:
+
+— Biror gap bo'ldimi? Men suhbatlarga mas'ul emasman.
+
+— Gap shundaki, men allaqachon ish topdim, shu bois bugun suhbatda qatnashmayman. — Klein kelganining sababini aytdi.
+
+— Tushunarli... — Xarvin Ston sababni bilgach, o'rnidan turib, o'ng qo'lini cho'zdi. — Tabriklayman. Sen rostdan ham odobli yigit ekansan. Men professor va katta dotsentlarga xabar beraman.
+
+Klein Xarvin bilan qo'l berib ko'rishdi va biroz suhbatlashib, so'ng xayrlashmoqchi bo'lganda, ortidan tanish bir ovozni eshitdi.
+
+— Moretti, boshqa ish topdingmi?
+
+Klein o'girilib, siymosi chuqur taassurot qoldiruvchi, kumush sochli bir mo'ysafidni ko'rdi. Teran, ko'k ko'zlari yuziga chuqur botgan, ajinlari kam edi. Qora frakda u o'tkir ko'rinardi.
+
+— Xayrli kun, ustoz. Janob Azik, — shoshib salom berdi u.
+
+— Ikkalangiz bu yerda nima qilyapsizlar? — Mo'ysafid boshqa hech kim emas, Xoy universiteti tarix fakultetining katta dotsenti, ayni paytda uning ustozi janob Kventin Koen edi.
+
+Koenning yonida bronza rangli teriga ega, o'rtacha gavdali o'rta yoshli kishi turardi. Yuzida tuk yo'q edi, qo'lida gazeta ushlagandi. Sochi qora, qorachiqlari jigarrang edi. Yuz tuzilishi mayin bo'lib, ko'zlari hayotning achchiq-chuchugini ko'rgandek ta'riflab bo'lmas charchoqni aks ettirardi. O'ng qulog'i tagida sinchiklab qaralgandagina ko'rinadigan qora xol bor edi.
+
+Xoy universiteti uni taniydi, chunki u Xoy universiteti tarix fakulteti o'qituvchisi, asl Kleinga ko'p yordam bergan janob Azik edi. U ustozi katta dotsent Koen bilan bahslashishni yoqtirardi. Ular ko'pincha fikr to'qnashuviga uchrar, ammo shunga qaramay, eng yaqin do'st edilar; aks holda gurunglashish uchun uchrashishni yoqtirmasdilar.
+
+Koen bosh irg'ab, beg'am ohangda dedi:
+
+— Azik bilan ikkovimiz bir ilmiy anjumanda qatnashishga keldik. Qanaqa ish topding?
+
+— Bu qadimiy yodgorliklarni izlash, to'plash va himoya qilish bilan shug'ullanadigan qo'riqlash kompaniyasi. Ularga professional maslahatchi kerak edi, ular menga haftasiga uch funt to'lashyapti. — Klein kecha singlisiga aytganini takrorladi. Shundan so'ng tushuntirdi: — Bilasiz, men tarixni jamlashdan ko'ra uni kashf etishni afzal ko'raman.
+
+Koen yengilgina bosh irg'ab dedi:
+
+— Har kimning o'z tanlovi bor. Shunchaki kelmay qo'ya qolmasdan, Tingen universitetiga zahmat chekib xabar bergani kelganingdan juda mamnunman.
+
+Shu payt Azik gapga aralashdi:
+
+— Klein, Uelch va Nayaga nima bo'lganini bilasanmi? Gazetalarda ularni o'g'rilar o'ldirgani yozilgan ekan.
+
+Voqea qurolli bosqinchilik ishiga aylandimi? Va nega u allaqachon gazetalarda? Klein esankirab, so'zlarini o'lchadi.
+
+— Men ham tafsilotlarni unchalik aniq bilmayman. Uelch To'rtinchi Davrdan qolgan, Sulaymon imperiyasining Antigonus xonadoniga oid bir kundalik qo'lga kiritgandi. Uni ochishimga yordam so'ralgandi. Men ularga dastlabki bir necha kun yordam berdim, keyin ish izlash bilan band bo'lib qoldim. Ikki kun avval politsiya ham menga kelgandi. — U Sulaymon imperiyasi va Antigonus xonadoniga oid masalani atayin oshkor qildi — ikki tarix o'qituvchisidan biror ma'lumot olish umidida.
+
+— To'rtinchi Davr... — Koen qoshini chimirib pichirladi.
+
+Azikning bronza rangli terisi va charchoq to'la ko'zlari avvaliga bo'm-bo'sh bo'lib qoldi, so'ng u nafas ichiga tortdi. Gazeta ushlagan chap qo'li bilan chakkasini ishqalab dedi:
+
+— Antigonus... bir narsa esga tushyapti... Ammo nega eslay olmayapman...
+
+
+# BOB 25: Sobor
+
+Azik o'ziga o'zi g'o'ldirarkan, beixtiyor Kventin Koenga ko'z tashladi — go'yo xotirasini uyg'otadigan biror ishora kutgandek. Koen teran botgan ko'k ko'zlari bilan hech ikkilanmay bosh chayqadi.
+
+— Mende bunga oid hech qanday taassurot yo'q.
+
+— ...Mayli unda. Ehtimol, shunchaki bir xil so'z o'zagiga ega bo'lsa kerak. — Azik chap qo'lini tushirib, o'zini mazax qilgandek kuldi.
+
+Klein bu natijadan ancha umidsizlandi va qo'shib qo'ymasdan turolmadi:
+
+— Ustoz, janob Azik, ikkalangiz ham bilasiz, men To'rtinchi Davr tarixini kashf etish va tiklashga juda qiziqaman. Agar biror narsa esingizga tushsa yoki tegishli ma'lumot qo'lga kiritsangiz, menga xat yozib yuborolasizmi?
+
+— Muammo yo'q. — Kleinning bugungi xatti-harakati tufayli kumush sochli katta dotsent undan ancha mamnun edi.
+
+Azik ham bosh irg'ab dedi:
+
+— Manziling hamon avvalgidekmi?
+
+— Hozircha, ammo tez orada ko'chaman. Vaqti kelganda sizga xat yozib bildiraman, — javob berdi Klein hurmat bilan.
+
+Koen qora hassasini silkitib dedi:
+
+— Rostdan ham yaxshiroq sharoitli joyga ko'chadigan payting bo'libdi.
+
+Shu payt Klein Azikning qo'lidagi gazetaga ko'z tashladi. So'zlarini o'ylab dedi:
+
+— Ustoz, janob Azik, gazetalarda Uelch va Naya haqida nima yozilgan? Men faqat tergovga mas'ul politsiyadan ozgina narsa bilib oldim.
+
+Azik endigina javob bermoqchi bo'lganda, Koen birdan qora frakiga oltin zanjir bilan ulangan cho'ntak soatini chiqardi.
+
+Tiq! U cho'ntak soatini ochib, hassasini taqillatdi.
+
+— Yig'ilish boshlanay deb qoldi. Azik, biz boshqa kechikolmaymiz. Gazetani Morettiga ber.
+
+— Mayli. — Azik o'qib bo'lgan gazetani Kleinga uzatdi. — Biz yuqoriga chiqamiz. Xat yozishni unutma. Manzilimiz hali o'zgargani yo'q; hamon Xoy universiteti Tarix fakulteti kabineti. Haha. — U kulib o'girildi va Koen bilan birga xonadan chiqib ketdi.
+
+Klein qalpog'ini yechib ta'zim qildi. Ikki janob ketganini kuzatgach, kabinet egasi Xarvin Ston bilan xayrlashdi. Koridordan o'tib, kulrang uch qavatli binodan sekin chiqdi.
+
+Quyoshga orqasini berib, hassasini ko'tarib, gazetani yozdi va sarlavhani ko'rdi: "Tingen Tong Posti."
+
+Tingenda rostdan ham har xil gazeta va jurnal bor ekan... Tong Posti, Kechki Post, Halol Gazeta, Backlund Kunlik Tribunasi, Tussok Times, oilaviy jurnallar va kitob taqrizlari... Klein xayolida paydo bo'lgan bir necha nomni beg'amgina esladi. Albatta, ulardan bir qismi mahalliy emasdi. Ular bug' lokomotivlari orqali tarqatilardi. Endi qog'ozsozlik va bosmaxona sanoati rivojlanib borgani sayin, bir gazeta narxi allaqachon bir pensgacha tushgandi. Uning auditoriyasi ham tobora kengayib borardi.
+
+Klein gazeta tafsilotlarini sinchiklab o'rganmadi, tez varaqlab, "Qurolli Bosqinchilik Qotilligi" xabari bor Yangiliklar bo'limiga o'tdi.
+
+"...Politsiya bo'limining ma'lumotiga ko'ra, janob Uelchning uyidagi manzara dahshatli edi. Yo'qolgan tilla, taqinchoq va pul, shuningdek, osongina olib ketsa bo'ladigan har qanday qimmatbaho narsa bor edi. Birorta ham tiyin qoldirilmagan. Bu shafqatsiz bir to'da jinoyatchining ishi, deb o'ylashga asos bor — ular yuzlari ko'rinib qolsa, janob Uelch va Naya xonim kabi begunoh kishilarni o'ldirishdan ham tap tortmaydi."
+
+"Bu — qirolligimiz qonunlariga ochiqdan-ochiq mensimaslik! Bu — jamoat xavfsizligiga tashlangan da'vat! Hech kim bunday holatga duch kelishni istamaydi! Albatta, bir yaxshi xabar shuki, politsiya qotilning izini topib, asosiy jinoyatchini qo'lga olgan. Biz har qanday keyingi yangiliklarni yetkazishga harakat qilamiz."
+
+"Muxbir: Jon Brauning."
+
+Masala hal qilinib, yopib qo'yilibdi... Klein xiyobon bo'ylab yurarkan, zo'rg'a bilinadigan tarzda bosh irg'adi. So'qmoq bo'ylab sayr qilib, gazetani varaqlab, boshqa yangilik maqolalari va seriallarni o'qidi.
+
+Birdan u ensasidagi tuklar tikka bo'lganini, go'yo unga ignalar sanchilayotgandek his qildi.
+
+Kimdir meni kuzatyaptimi? Poylayaptimi? Nazorat qilyaptimi? Kleinda turli o'ylar qalqib chiqarkan, u xira bir tushunchaga ega bo'ldi. Yerda ham u bir paytlar ko'rinmas bir nigohni sezib, oxiri uning manbasini topgandi. Biroq u hech qachon hozir boshdan kechirayotganidek bilqillab aniq sezilmagandi! Bu asl Kleinning xotira parchalarida ham xuddi shunday edi!
+
+Boshqa olamga o'tishmi yoki o'sha sirli omadni oshirish marosimimi mening oltinchi sezgimni kuchaytirgan?
+
+Klein kuzatuvchini izlash istagini bosdi. Romanlar o'qib, kinolar ko'rib orttirgan bilimidan foydalanib, qadamini sekinlatdi va gazetani yig'ishtirib, Xoy daryosi tomon qaradi. Shundan so'ng, go'yo manzaradan zavqlanayotgandek, boshini sekin turli tomonga burdi. O'zini tabiiy tutib, o'girildi, hamma narsani ko'zga oldi.
+
+Daraxtlar, maysazorlar va uzoqda o'tib ketayotgan talabalardan boshqa, u yerda boshqa hech kim yo'q edi. Ammo Klein kimdir uni kuzatayotganiga amin edi!
+
+Bu... Kleinning yuragi telbavor urar, qon vujudida shiddatli gupillash bilan oqardi. U qog'ozni yozib, yuzining yarmini to'sdi — kimdir ifodasidan biror noto'g'ri narsa payqab qolishidan qo'rqdi. Ayni paytda hassasini siqib, qurolini sug'urishga shaylandi.
+
+Bir qadam. Ikki qadam. Uch qadam. Klein sekin oldinga yurdi. Poylanayotgan tuyg'u qolaverdi, ammo xatar to'satdan otilib chiqmadi. U xiyobon bo'ylab ancha qotib yurib, jamoat aravalari kutish nuqtasiga yetganda, bir arava tasodifan kelib to'xtadi.
+
+— Temir... Zoute... Yo'q, Shampan ko'chasiga. — Klein o'ylarini muttasil rad etardi. U dastlab darrov uyga ketmoqchi edi, ammo niyati noma'lum kuzatuvchini kvartirasiga yetaklab borishdan qo'rqdi. Shundan so'ng Zouteland ko'chasiga borib, Tungi Lochinlar yoki hamkasblaridan yordam so'rashni o'yladi. Biroq dushmanini hushyor torttirib, Tungi Lochinlarni fosh qilib qo'yishdan qo'rqib, fikridan qaytdi. Shu bois beg'amgina boshqa joyni tanladi.
+
+— Olti pens, — javob berdi chipta sotuvchi odatdagidek.
+
+Klein bugun o'zi bilan tilla funt olmagandi. Pulni odatdagi joyga yashirib, faqat ikkita soli banknotini olgandi. Va kelishidan oldin shuncha pul sarflagani uchun, unda bir soli-yu olti pens qolgandi. Shu bois u barcha tangalarini chiqarib, chipta sotuvchiga uzatdi.
+
+Aravaga chiqib, joy topdi, nihoyat arava eshiklari yopilishi bilan, Klein o'sha kuzatilish bezovtaligi g'oyib bo'lganini sezdi! U sekin nafas chiqardi, a'zoyi badani biroz junjikdi.
+
+Nima qilaman? Bundan keyin nima qilishim kerak? Klein yechim topish uchun aravadan tashqariga qarab, miyasini ishlatdi.
+
+Uni kuzatayotgan odamning niyatini aniqlamagunicha, Klein yomon niyat bor deb taxmin qilishi kerak edi! Xayolida ko'plab o'ylar qalqib chiqdi, ammo u ularni rad etdi. U hech qachon bunday voqeani boshdan kechirmagandi va g'oyalarini tartibga solish uchun bir necha daqiqa kerak bo'ldi.
+
+U Tungi Lochinlarni xabardor qilishi kerak edi; faqat ulargina bu tahdiddan rostakamiga qutula olardi! Ammo u yerga to'g'ridan-to'g'ri bora olmayman, aks holda ularni fosh qilib qo'yishim mumkin. Ehtimol, bu ularning maqsadidir...
+
+Shu fikr yo'nalishi bo'yicha Klein turli ehtimollarni dag'al tarzda chamalab chiqdi, fikrlari tiniqlashdi.
+
+Fffff! U nafas chiqarib, biroz o'ziga keldi. Yonidan uchib o'tayotgan manzaraga jiddiy qaradi.
+
+Shampan ko'chasigacha yo'lda hech qanday tasodif bo'lmadi, ammo Klein eshikni ochib aravadan tushganda, darrov yana o'sha kuzatilish bezovtaligini his qildi!
+
+U go'yo hech narsa sezmagandek tutdi. Gazeta va hassasini olib, Zouteland ko'chasi tomon sekin yurdi. Ammo u o'sha ko'chaga kirmadi. Buning o'rniga boshqa yo'l bilan ortdagi Qizil Oy Nuri ko'chasiga bordi.
+
+U yerda go'zal oq maydon, shuningdek, uchli tomli katta sobor bor edi!
+
+Avliyo Selena sobori! Abadiy Tun ma'budasi cherkovining Tingendagi qarorgohi!
+
+Banda sifatida, dam olish kunida ibodat marosimida qatnashishi yoki duo qilishida g'alati hech narsa yo'q edi.
+
+Sobor Yerning gotik uslubiga o'xshash dizaynga ega edi. Unda ko'k va qizil katakli derazalar orasida baland, qora va salobatli soat minorasi ham bor edi.
+
+Klein soborga qadam qo'yib, yo'lakdan ibodat zaliga kirdi. Yo'l-yo'lakay vitrajli derazalar qizil va ko'k oyna naqshlaridan iborat bo'lib, zalga rangli nur tushishiga imkon berardi. Ko'k qoraga yaqin, qizil esa qirmizi oy bilan bir xil rangda edi. Bu atrofni g'ayrioddiy darajada qorong'i va sirli ko'rsatardi. Kuzatilish tuyg'usi g'oyib bo'ldi.
+
+Klein o'zini bemalol tutib, ochiq ibodat zaliga yurdi. Bu yerda baland derazalar yo'q edi. Teran zulmat ta'kidlangandi, ammo yoysimon muqaddas mehrob ortida, eshikka to'g'ridan-to'g'ri qarama-qarshi devorda, musht kattaligidagi yigirmatacha doira teshik bor edi — ular zalga porloq quyosh nuri kirishiga imkon berardi. Bu xuddi piyodalar to'satdan qorong'i tunga boshini ko'tarib, yulduzlarni — ularning butun olijanobligi, poklik va muqaddasligida yarqirayotgan yulduzlarni ko'rgandek edi.
+
+Klein doimo xudolarni tahlil qilib, anglash mumkin deb ishongan bo'lsa-da, bu yerda boshini quyi solmasdan turolmadi.
+
+Yepiskop mayin ohangda va'z o'qirdi, Klein esa o'rindiqlarni ikki ustunga ajratgan yo'lak bo'ylab jimgina yurdi. U yo'lakka yaqin bo'sh joy izlab, sekin o'tirdi. Hassasini oldidagi o'rindiq suyanchig'iga suyab, qalpog'ini yechib, gazeta bilan birga tizzasiga qo'ydi. So'ng qo'llarini bir-biriga chalishtirib, boshini quyi soldi. Butun jarayonni u sekin va odatdagidek bajardi — go'yo rostdan ham duoga kelgandek.
+
+Klein ko'zlarini yumib, zulmatda yepiskopning ovozini jimgina tingladi.
+
+"Kiyim-u taom yetishmay, ular sovuqda yalang'och qoldi.
+
+Yomg'irlardan jiqqa ho'l bo'lib, boshpana yo'qligidan toshlar tagiga tiqiladi.
+
+Ular ko'krakdan yulib olingan yetimlar, umid ulardan uzilgan; ular to'g'ri yo'ldan ozdirilgan kambag'allar.
+
+Abadiy Tun ularni tashlab ketmadi, balki ularga muhabbat ato etdi."
+
+...
+
+Aks-sadolar quloqqa kirib kuchayardi. Klein oldida bir parcha zulmatni ko'rdi, ruhi va aqli poklanganini his qildi. U xotirjam tingladi, toki yepiskop va'zini tugatib, ibodat marosimini yakunlaguncha.
+
+Shundan so'ng yepiskop yonidagi tavba xonasi eshigini ochdi. Erkagu ayollar navbatga tizila boshladi.
+
+Klein ko'zlarini ochib, qalpog'ini yana kiydi. Hassasi va gazetasi bilan o'rnidan turib, navbatdan joy oldi. Yigirma daqiqadan ko'proq vaqtdan keyin uning navbati keldi. U ichkariga kirib, ortidan eshikni yopdi. Ro'parasida zulmat bor edi.
+
+— Bolam, nima demoqchisan? — Yog'och to'siq ortidan yepiskopning ovozi yangradi.
+
+Klein cho'ntagidan "Maxsus operatsiyalar bo'limi, Yettinchi bo'linma" nishonini chiqarib, teshik orqali yepiskopga uzatdi.
+
+— Kimdir mening ortimdan ergashyapti. Men Dunn Smitni topmoqchiman. — Go'yo jim zulmatdan yuqqandek, uning ohangi ham mayinroq bo'ldi.
+
+Yepiskop nishonni olib, bir necha soniya jim turgach dedi:
+
+— Tavba xonasidan o'ngga buril va oxirigacha yur. Yon tomonda yashirin eshik bo'ladi. Kirgandan keyin kimdir yo'l boshlaydi.
+
+Shunday derkan, u xonada bir arqonni tortdi, shu bois bir ruhoniy qo'ng'iroq tovushini eshitdi.
+
+Klein nishonini olib, qalpog'ini yechib, ko'kragiga bosdi. Yengilgina ta'zim qilib, o'girilib chiqdi. Kuzatilish tuyg'usi yo'qolganiga ishonch hosil qilgach, kalta silindr shlyapasini kiydi. Hech ortiqcha hissiyotsiz, hassasini ushlab, o'ngga burildi, toki yoysimon mehrob oldiga yetguncha. O'z tomonidagi devorda yashirin eshikni topdi. Uni jimgina ochib, tez ichkariga sirg'alib kirdi.
+
+Yashirin eshik jimgina yopildi, gaz chiroqlari yorug'ida o'rta yoshli, qora to'nli ruhoniy paydo bo'ldi.
+
+— Nima bo'ldi? — so'radi ruhoniy lo'nda qilib.
+
+Klein nishonini ko'rsatib, yepiskopga aytganini takrorladi.
+
+O'rta yoshli ruhoniy boshqa savol bermadi. U o'girilib, jim oldinga yurdi. Klein bosh irg'ab, qalpog'ini yechdi. Qora hassasi bilan jimgina ergashdi.
+
+Rozanna bir paytlar Chanis Darvozasiga boradigan chorrahadan chapga burilsa, Avliyo Selena soboriga yetilishini aytgandi.
+
+
+# BOB 26: Mashq
+
+Tak! Tak! Tak! Qadam tovushlari qorong'i, tor koridorda aks-sado berardi, qolgan jihatdan u jim-jit edi. Klein belini tik tutib, ruhoniyning sur'atiga moslashdi. U na savol bermas, na u bilan beg'am gaplashardi — go'yo shamolsiz suv yuzasidek jim edi.
+
+Qattiq qo'riqlanadigan yo'lakdan o'tgach, ruhoniy kalit bilan yashirin eshikni ochib, toshdan ishlangan zinapoyaga ishora qildi.
+
+— Chanis Darvozasiga yetish uchun chorrahada chapga burining.
+
+— Ma'buda sizga marhamat qilsin. — Klein ko'kragida qirmizi oy ishorasini qildi. Oddiy odamlar odob ko'rsatardi, dindorlar esa marosim duosi bilan qatnashardi.
+
+— Bekani ulug'lasin. — Ruhoniy ham xuddi shu ishora bilan javob qaytardi.
+
+Klein boshqa gapirmay, devorning ikki tomonidagi nafis qadalgan gaz chiroqlari yordamida qorong'i tosh zinadan tushdi. Yo'l yarmida u beixtiyor ortiga o'girilib, ruhoniy kirish joyida turganini ko'rdi. U soyada bo'lib, qimirlamas mum haykalga o'xshardi. Klein nigohini olib, pastga tushishda davom etdi.
+
+Ko'p o'tmay, u muzdek sovuq tosh plitalar to'shalgan yerga yetdi. Bu uni chorrahaga olib bordi.
+
+U Chanis Darvozasi tomon burilmadi, chunki yaqinda navbatchiligini tugatgan Dunn Smit, albatta, u yerda emasdi. U o'ngga burildi va tanish yo'lni ko'rdi.
+
+Klein yana bir zinadan ko'tarilib, Blackthorn Qo'riqlash Kompaniyasi ichida paydo bo'ldi. Qattiq yopiq yoki yarim ochiq eshiklarni ko'rib, u ularga otilib kirmadi. Buning o'rniga qabulxonaga bordi va shirin tabassum bilan jurnalga berilib o'tirgan jigarrang sochli qizni ko'rdi.
+
+— Salom, Rozanna. — Klein uning yoniga kelib, atayin stolni taqillatdi.
+
+Taq! Rozanna birdan o'rnidan turib, bir stulni ag'darib yubordi va hovliqib dedi:
+
+— Salom, bugun ob-havo yaxshi. S-sen, Klein, nega bu yerdasan? — U ko'kragiga shapatilab, bir necha bor yengil tin oldi. U xuddi otasi uni ishyoqmaslik qilib ushlab olishidan qo'rqqan yosh qizga o'xshardi.
+
+— Kapitanni topishim kerak, — javob berdi Klein sodda qilib.
+
+— ...Meni cho'chitib yubording. Kapitan chiqib qoldimi deb o'yladim. — Rozanna Kleinga o'qrayib qaradi. — Taqillatishni bilmaysanmi?! Hmf, men sabrli va mehribon ayol ekanimga shukur qil. Xo'sh, "xonim" so'zini afzal ko'raman... Kapitanni qidirishingga sabab bormi? U Orianna xonimning ro'parasidagi xonada.
+
+Garchi ko'ngli xufton bo'lsa-da, Klein Rozannadan shu qadar zavqlandiki, jilmaydi. Bir oz o'ylab dedi:
+
+— Bir sir.
+
+— ... — Rozannaning ko'zlari katta ochildi, u ishonqiramay turganda, Klein yengilgina ta'zim qilib, xayrlashdi.
+
+U qabulxona to'sig'idan o'tib, o'ngdagi birinchi kabinet eshigini taqillatdi.
+
+— Kiring. — Dunn Smitning teran va mayin ovozi yangradi.
+
+Klein eshikni itarib ochdi, so'ng ortidan yopdi. Qalpog'ini yechib ta'zim qildi.
+
+— Xayrli tong, Kapitan.
+
+— Xayrli tong, qanday yordam bera olaman? — Dunnning qora plashi va qalpog'i yonidagi kiyimilgichda osilib turardi. U oq ko'ylak va qora jiletka kiygandi. Soch chizig'i ancha baland bo'lsa-da, kulrang ko'zlari teran, o'zi ancha tetik ko'rinardi.
+
+— Kimdir mening ortimdan ergashyapti. — Klein hech bezaksiz halol javob berdi.
+
+Dunn orqaga suyanib, qo'llarini bir-biriga chalishtirdi. Teran kulrang ko'zlari Kleinning ko'ziga jimgina qaradi. U ergashish mavzusini davom ettirmay, so'radi:
+
+— Sobordan keldingmi?
+
+— Ha, — javob berdi Klein.
+
+Dunn yengilgina bosh irg'adi. Uning yaxshi yoki yomonligi haqida fikr bildirmay, mavzuni qaytardi.
+
+— Ehtimol, Uelchning otasi biz xabar bergan o'lim sababiga ishonmay, masalani tergash uchun Shamol Shahridan xususiy tergovchi yollagandir.
+
+Midseashirning Konstant shahri Shamol Shahri deb ham atalardi. U ko'mir va po'lat sanoati nihoyatda rivojlangan hudud edi. U Loen qirolligining eng yirik uch shahridan biri edi.
+
+Kleinning fikr bildirishini kutmay, Dunn davom etdi:
+
+— Bu o'sha daftar oqibati ham bo'lishi mumkin. He, biz aynan Uelch Antigonus xonadoni daftarini qayerdan olganini tergayotgan edik. Albatta, bu daftarni izlayotgan boshqa odam yoki tashkilotlarni ham istisno qila olmaymiz.
+
+— Nima qilishim kerak? — so'radi Klein jiddiy ovozda. Shubhasiz, u buning birinchi sabab bo'lishini umid qilardi.
+
+Dunn unga darrov javob bermadi. Qahva piyolasini ko'tarib bir ho'pladi, ko'zlarida zarracha to'lqin alomati yo'q edi.
+
+— Kelgan yo'ling bilan qayt, so'ng nima istasang, o'shani qil.
+
+— Nima istasam-a? — qaytardi Klein savol bilan.
+
+— Nima istasang. — Dunn ishonch bilan bosh irg'adi. — Albatta, ularni cho'chitib yuborma yoki qonunni buzma.
+
+— Mayli. — Klein chuqur nafas olib, xayrlashdi.
+
+U xonadan chiqib, yana yer ostiga qaytdi. Chorrahada chapga burildi, ikki devordagi gaz chiroqlari nuriga cho'milib, jimgina bo'm-bo'sh, qorong'i va sovuq yo'lakka yetdi. Qadam tovushlari aks-sado berib, uni yanada yolg'iz va qo'rqinchli qilib ko'rsatardi.
+
+Tez orada Klein zinapoyaga yetdi. Oldinga yurib, u yerda turgan bir soyani — o'rta yoshli ruhoniyni ko'rdi. Uchrashganda ikkovi bir og'iz so'z aytmadi. Ruhoniy jimgina o'girilib, yo'l bo'shatdi. U jimgina oldinga yurib, ibodat zaliga qaytdi.
+
+Yoysimon mehrob ortidagi doira teshiklar hamon tip-tiniq va yorqin, binoning ichidagi zulmat va sukunat esa o'zgarmasdi. Tavba xonasi tashqarisida hamon erkagu ayollar tizilib turardi, ammo avvalgidan ancha kam. Bir oz kutgach, Klein hassasi va gazetasi bilan, go'yo hech narsa bo'lmagandek, ibodat zalini sekin tark etdi va Avliyo Selena soboridan muvaffaqiyatli chiqdi.
+
+U chiqishi bilanoq yondirayotgan quyoshni ko'rdi. Darrov o'sha tanish kuzatilish tuyg'usini qaytadan sezdi. U o'zini lochin ko'z tikkan o'ljadek his qildi.
+
+Birdan xayolida bir savol paydo bo'ldi. Nega "kuzatuvchi" mening ortimdan soborga kirmadi? Garchi men qorong'i muhit va ruhoniydan foydalanib, vaqtinchalik g'oyib bo'lishimni yashira olgan bo'lsam-da, u duo qilayotgandek tutib, meni kuzatishda davom etishi qiyin emas edi-ku? Agar u biror yomon ish qilmagan bo'lsa, ochiqdan-ochiq, halol tarzda kirib kelishda muammo bo'lmasdi, a? Faqat bu odamda biror qora o'tmish bo'lib, uni cherkovdan yoki yepiskopdan qo'rqitsa — uning Beyonder kuchiga ega bo'lishi mumkinligini bilib. Bunday holatda, uning xususiy tergovchi bo'lish ehtimoli juda kam...
+
+Klein nafas chiqarib, endi avvalgidek asabiy tutmadi. U beg'amgina sayr qilib, aylanib, Zouteland ko'chasining ortiga bordi. Devorlari rang-baranglashgan, qadimiy uslubdagi bino oldida to'xtadi. Eshikdagi manzil "3" edi. Uning nomi — Zouteland Otishxona Klubi.
+
+Politsiya bo'limining yer osti otishxonasining bir qismi qo'shimcha mablag' topish maqsadida omma uchun ochilgandi. Klein ichkariga kirdi va kuzatilish tuyg'usi bir zumda g'oyib bo'ldi. U bu imkoniyatdan foydalanib, Maxsus operatsiyalar bo'limi nishonini xizmatchiga uzatdi. Qisqa tekshiruvdan so'ng, uni yer ostiga — kichik, yopiq otishxonaga olib borishdi.
+
+— O'n metrlik nishon. — Klein xizmatchiga sodda qilib aytdi.
+
+So'ng qo'ltiq kaburasidan revolverni va cho'ntagidan guruch o'qlar qutisini oldi. To'satdan nishonga olinishning tuyg'usi uning o'zini himoya qilish istagini sustkashligidan ustun qildi. Shu bois u otishni mashq qilish uchun sabrsizlik bilan kelgandi.
+
+Pa! Xizmatchi ketgach, u barabanni ochib, kumush iblis ovi o'qlarini chiqardi. Shundan so'ng barabanni oddiy guruch o'qlar bilan to'ldirdi. Bu safar u na tasodifan o'q uzilishining oldini olish uchun bo'sh joy qoldirdi, na rasmiy kiyimi va kalta silindr shlyapasini yechdi. U odatdagi kiyimida mashq qilmoqchi edi. Axir, dushman yoki xatarga duch kelgach, "bir daqiqa kut, qulayroq narsaga o'zgartirib olay" deb baqirishning iloji yo'q edi.
+
+Tiq! Klein barabanni yopib, bosh barmog'i bilan aylantirdi. Birdan qurolni ikki qo'llab ushlab, tik ko'tardi va o'n metrdan oshiq narida turgan nishonga mo'ljal oldi. Biroq otishga shoshilmadi. Buning o'rniga harbiy mashg'ulotdagi tajribasini — temir mo'ljal bilan chiziq hosil qilishni va qurolning teskari zarbasi haqidagi bilimni esladi.
+
+Shitir! Shitir! Kiyimlari shitirlarkan, Klein mo'ljal olish va ushlash holatini takrorladi. U yuqori sinf imtihoni topshirayotgan o'quvchidek jiddiy edi. Buni bir necha bor takrorlagach, devor tomon tisarilib, uzun, yumshoq o'rindiqqa o'tirdi. Revolverni yon tomonga qo'yib, qo'llarini uqalay boshladi va ancha vaqt dam oldi.
+
+U bir necha daqiqa mashqini eslab, so'ng yog'och sopli va bronza barabanli revolverni qo'liga oldi. Standart otish holatini olib, tepkini bosdi.
+
+Bang! Qo'li titradi, tanasi teskari zarbadan orqaga siljidi. O'q nishonga tegmadi.
+
+Bang! Bang! Bang! Orttirgan tajribasiga tayanib, u oltita o'q tugaguncha qayta-qayta otdi.
+
+Nishonga tega boshladim... Klein orqaga tisarilib, yana o'tirdi va nafas chiqardi.
+
+Tiq! U barabanni ochib, oltita gilzani yerga to'kdi. So'ng ifodasini o'zgartirmay, qolgan guruch o'qlarini joyladi. Qo'lini bo'shashtirgach, Klein yana o'rnidan turib, otish holatiga qaytdi.
+
+Bang! Bang! Bang! Jarangli otishlar aks-sado berib, nishon titradi. Klein qayta-qayta mashq qilib, dam oldi. U barcha o'ttizta oddiy o'qni va avvalgi qolgan beshtasini sarfladi. Asta-sekin nishonga tega boshladi va nishon markaziga mo'ljal ola boshladi.
+
+U og'rib ketgan yelkalarini silkitib, so'nggi beshta gilzani uloqtirdi. Boshini quyi solib, murakkab naqshli iblis ovi o'qlarini yana qurolga joyladi, tasodifan o'q uzilishining oldini olish uchun bir bo'sh joy qoldirdi.
+
+Revolverni qaytarib qo'ltiq kaburasiga solgach, Klein vujudidagi changni qoqib, otishxonadan ko'chaga chiqdi.
+
+Kuzatilish tuyg'usi yana paydo bo'ldi. Klein avval his qilganidan ko'ra xotirjamroq bo'lib, sekin Shampan ko'chasiga yurdi. U to'rt pens sarflab, relsli aravada Temir Xoch ko'chasiga qaytdi, so'ng o'z kvartirasiga yetdi. Poylanish tuyg'usi izsiz g'oyib bo'ldi.
+
+Klein kalitlarini chiqarib eshikni ochdi va o'ttizga yetay deb qolgan, zig'ir ko'ylak kiygan, kalta sochli bir kishini stolda o'tirgan holda ko'rdi. Yuragi taranglashdi, so'ng darrov bo'shashdi. Klein jilmayib salom berdi:
+
+— Xayrli tong — yo'q — xayrli kun, Benson.
+
+Bu kishi boshqa hech kim emas, Klein va Melissaning katta akasi Benson Moretti edi. U bu yil endigina yigirma besh yoshda edi, ammo orqaga ketgan soch chizig'i va horg'in qiyofasi uni deyarli o'ttiz yoshlik qilib ko'rsatardi. Qora soch va jigarrang ko'zli u Kleinga biroz o'xshardi, ammo unda Kleindagi xira ilmiy tarovat yo'q edi.
+
+— Xayrli kun, Klein. Suhbat qanday o'tdi? — Benson o'rnidan turib iljaydi. Qora palto va kalta silindr shlyapasi karavotlarining bir chiqib turgan joyiga osilgandi.
+
+— Dahshatli, — javob berdi Klein hissiyotsiz ohangda. Bensonning esankiraganini ko'rib, Klein kulimsirab qo'shib qo'ydi: — Aslida, men hatto suhbatda qatnashmadim ham. Suhbatdan oldin ish topdim, u haftasiga uch funt to'laydi... — U Melissaga aytganini yana takrorladi.
+
+Bensonning ifodasi tinchlandi, u bosh chayqab kuldi.
+
+— Bolaning ulg'ayishini ko'rayotgandekman... Xo'sh, bu ish ancha yaxshi. — U xo'rsinib dedi: — Ishdan kelib, birinchi eshitganim shunday yaxshi xabar bo'lgani zo'r-da. Bugun kechqurun nishonlab, bir oz mol go'shti olsakmikan?
+
+Klein jilmaydi.
+
+— Albatta, lekin Melissa achinadi deb o'ylayman. Tushdan keyin bir oz masalliq olsakmikan? Hech bo'lmasa uch soli olaylik? Xo'sh, rostini aytsam, bir funt yigirma soliga, bir soli o'n ikki pensga almashinadi. Hatto yarim pens va chorak pens kabi qiymatlar ham bor. Bunday tanga tizimi shunchaki mantiqqa zid. Juda boshog'riq. Menimcha, bu dunyodagi eng ahmoqona tanga tizimlaridan biri bo'lsa kerak.
+
+Shunday derkan, u Bensonning ifodasi qattiqlashganini ko'rdi. Biroz xavotirlanib, biror noto'g'ri narsa aytdimmikan deb o'yladi. Balki asl Kleinning yo'qolgan xotira parchalarida Benson hech qanday salbiy narsaga bardosh bermaydigan ashaddiy millatchi bo'lganmidi?
+
+Benson bir necha qadam tashlab, qattiq ifoda bilan unga e'tiroz bildirdi:
+
+— Yo'q, bu eng ahmoqona tanga tizimlaridan biri emas, balki eng ahmoqonasi.
+
+Biri emas! Klein esankirab qoldi, ammo tez o'ziga keldi. U akasining ko'ziga qarab kuldi. Haqiqatan, Benson kinoyaviy hazilda zo'r edi.
+
+Benson lablari uchini ko'tarib, bor jiddiyligi bilan dedi:
+
+— Tushunishing kerakki, oqilona va sodda tanga tizimini joriy etish uchun sanashni bilish va o'nlik tizimni egallash kerak. Afsuski, o'sha muhim shaxslar orasida iste'dod juda kam.
+
+
+# BOB 27: Aka-singillar Kechligi
+
+Naqadar o'tkir va to'g'ri gap... Klein qah-qah otib kuldi. O'tgan hayotidan orttirgan boy tajribasiga tayanib, yana bir kinoya qo'shdi:
+
+— Aslida, o'sha muhim shaxslarda umuman miya bor degan biror dalil ham yo'q.
+
+— Zo'r! Juda zo'r! — Benson qah-qah urib kulib, bosh barmog'ini ko'tardi. — Klein, sen avvalgidan ancha hazilkash bo'lib qolibsan.
+
+Bir nafas olgach, davom etdi:
+
+— Tushdan keyin pristanga borishim kerak. Ertaga faqat ish kunim emas. Shundan keyin vaqtim bo'ladi... ikkalangiz bilan Tingen Shahar Uy-joy Yaxshilash Kompaniyasiga borishga. Arzon va yaxshi, ijaraga beriladigan qator uylari bormi-yo'qmi, ko'rib chiqamiz. Qolaversa, janob Frankini bir bor yo'qlashim kerak.
+
+— Uy egamizni-mi? — gangib so'radi Klein. Hozirgi uy egamiz nomida ancha yaxshi mahallalardan qator uylar bormikan?
+
+Benson akasiga bir nazar tashlab, kulib dedi:
+
+— U bilan tuzgan bir yillik ijara shartnomamizni unutdingmi? Atigi olti oy bo'ldi.
+
+— His... — Klein darrov bir yutim sovuq havo oldi. U bu masalani rostdan ham unutgandi! Garchi ijara haqi haftasiga bir marta to'lansa-da, ijara muddati bir yil edi. Agar ular hozir ko'chsa, bu shartnomani buzish bilan teng edi. Sudga tortilsa, ular katta miqdorda pul to'lashga majbur bo'lardi!
+
+— Senga hali hayotiy tajriba yetishmaydi. — Benson orqaga ketgan qora soch chizig'ini ushlab, orziqib dedi: — Bu men o'shanda jon-jahdim bilan kurashib olgan band. Aks holda, janob Franki uni bizga faqat uch oyga ijaraga berishga rozi edi. Pulli odamlarga uy egalari barqaror daromad uchun bir yil, ikki yil, hatto uch yilga shartnoma imzolardi. Ammo biz uchun — o'sha paytdagi biz uchun — va qo'shnilarimiz uchun, uy egalari biror yomon narsa yuz berib, ularni ijara haqidan mahrum qilishidan doimo havotirda bo'lishi kerak edi. Shu bois ular faqat qisqa muddatli shartnoma imzolardi.
+
+— Bunday holatda, ular vaziyatga qarab narxni oshirishni taklif qila olardi, — xulosa qildi Klein, asl Kleinning xotiralari va o'zining ijarachi sifatidagi tajribasiga tayanib.
+
+Benson xo'rsinib dedi:
+
+— Bu — bugungi jamiyatning shafqatsiz haqiqati. Mayli, tashvishlanishing shart emas. Shartnoma masalasini osongina hal qilsa bo'ladi. Rostini aytsam, biz unga bir haftalik ijara qarz bo'lib qolsak ham, janob Franki darrov bizni ko'chaga uloqtirib, qimmatli narsalarimizni musodara qilib olardi. Axir, uning aql-zakovati maymunnikidan ham past. U haddan tashqari murakkab masalalarni tushuna olmaydi.
+
+Buni eshitib, Klein birdan bir hazilni esladi. U bosh chayqab jiddiy dedi:
+
+— Yo'q, Benson. Adashyapsan.
+
+— Nega? — Benson gangib qoldi.
+
+— Janob Frankining aql-zakovati maymunnikidan baribir bir oz yuqoriroq, — javob berdi Klein bor jiddiyligi bilan. Benson javoban endigina jilmaymoqchi bo'lganda, u qo'shib qo'ydi: — Agar kayfiyati joyida bo'lsa.
+
+— Haha. — Benson o'zini tutolmay, qah-qah urib kuldi. Bir necha bor jo'shqin kulgidan so'ng, u Kleinga ishora qildi, bir lahza fikrini so'zga sola olmadi. Faqat shundan keyin u asosiy mavzuga qaytdi. — Albatta, janob sifatida biz bunday uyatsiz hiylalarni ishlata olmaymiz. Men buni ertaga janob Franki bilan muhokama qilaman. Ishon, uni ko'ndirish oson, juda oson.
+
+Klein Bensonning fikriga shubha qilmadi. Gaz quvurlarining mavjudligi buning a'lo isboti edi.
+
+Aka-ukalar o'rtasida bir oz beg'am suhbatdan so'ng, kechagi qolgan tovada qovurilgan baliq sarqitlari bir oz sabzavot bilan sho'rva qilindi. Qaynatish jarayonida bug' javdar nonini namladi. Nonga bir oz sariyog' surib, Klein va Benson sodda ovqatlanishdi, ammo undan juda mamnun bo'lishdi. Axir, sariyog'ning bor xushbo'yligi va shirinligi ularda tugamas ta'm qoldirardi.
+
+Benson ketgach, Klein uchta soli banknoti va bir necha qaytim pens bilan "Salat va Go'sht" bozoriga bordi. U bir funt mol go'shtiga olti pens, suyagi kam, yangi va serjon baliqqa yetti pens sarfladi. Bundan tashqari, kartoshka, no'xat, turp, rovoch, salat va sholg'om, shuningdek, rozmarin, rayhon, zira kabi ziravorlar va oshpazlik moylarini sotib oldi. Bu vaqt davomida u o'zini kuzatilayotgandek his qilishda davom etdi, ammo jismoniy aloqa bo'lmadi.
+
+Smyrin novvoyxonasida bir oz vaqt o'tkazgach, Klein uyiga qaytdi va qo'l kuchini mashq qilish uchun kitoblar kabi og'irroq narsalar bilan og'irlik ko'tara boshladi. U talabalar uchun majburiy harbiy xizmatda o'rgangan harbiy boks bilan mashq qilishni rejalashtirgandi. Biroq u maktabdagi ko'rik mashqlarini allaqachon unutib qo'ygandi, faqat harbiy xizmatdagina o'rgatilgan boksni-ku aytmasa ham bo'lardi. Achchiqlanib, u faqat soddaroq narsa qila olardi.
+
+Klein o'zini haddan tashqari charchatmadi, chunki bu horg'inlikka olib kelib, uni kattaroq xatarga qo'yardi. U munosib dam olib, asl Kleinning qaydlari va o'quv materialini o'qiy boshladi. U To'rtinchi Davrga oid biror narsani yana o'qishni istardi.
+
+...
+
+Kechqurun Benson va Melissa stol oldida o'tirishdi. Taomlar boshlang'ich maktabning yuqori sinf o'quvchilaridek saranjom terilgandi.
+
+Taomlarning xushbo'yligi to'q ohanglar uyg'unligidan iborat edi — dimlangan mol go'shtining qalbni o'g'irlovchi tarovati, yaqqol mayin kartoshka, quyuq no'xat sho'rvasining shirinligi, dimlangan rovochning mayin ta'mi va sariyog' surilgan javdar nonning shirinligi.
+
+Benson og'zining suvini bir yutib, o'girilib, Kleinning xirillama baliqni laganga qo'yayotganini ko'rdi. U moyning xushbo'yligi burni orqali bo'g'ziga, so'ng oshqozoniga kirib borganini his qildi.
+
+G'uvv! Uning oshqozoni yaqqol norozilik bildirdi.
+
+Klein yenglarini shimarib, bir lagan qovurilgan baliqni ko'tarib, saranjom stolning o'rtasiga qo'ydi. Shundan so'ng shkafga qaytib, ikkita katta piyola zanjabil pivosini olib, o'zi va Benson o'tirgan joyga qo'ydi. Melissaga jilmayib, go'yo sehrgar fokus ko'rsatayotgandek, bir limonli puding chiqardi.
+
+— Biz pivo ichamiz, sen esa buni yeysan.
+
+— ...Rahmat. — Melissa limonli pudingni oldi.
+
+Buni ko'rgan Benson o'z piyolasini ko'tarib, jilmayib dedi:
+
+— Bu Kleinning durust ish topganini nishonlash uchun.
+
+Klein piyolasini ko'tarib, Bensonniki bilan chaqishtirdi, so'ng Melissaning limonli pudingiga chaqishtirdi.
+
+— Bekani ulug'lasin!
+
+Qult. U boshini orqaga tashlab, ichib yubordi. Achchimtir tuyg'u tomog'ini iliqlashtirib, unga ajoyib ta'm qoldirdi. Nomiga qaramay, zanjabil pivosida hech qanday spirt yo'q edi. Bu zanjabilning achchiqligi va limonning nordonligi aralashmasidan iborat bo'lib, ta'mi pivoga o'xshardi. Bu ayollar ham, bolalar ham ichsa bo'ladigan ichimlik edi. Biroq Melissaga uning ta'mi yoqmasdi.
+
+— Bekani ulug'lasin! — Benson ham bir yutim ichdi, Melissa esa limonli pudingdan bir tishladi. Uni qayta-qayta chaynab, istar-istamas yutdi.
+
+— Tatib ko'r. — Klein piyolasini qo'yib, vilka va qoshig'ini oldi va stolga to'la taomga ishora qildi. U eng ko'p quyuq no'xat sho'rvasidan tashvishda edi. Axir, u Yerda hech qachon bunchalik g'alati narsa yemagandi. U faqat asl Kleinning xotira parchalaridan retseptni moslashtira olgandi, xolos.
+
+Katta aka sifatida Benson tortinmay, bir qoshiq ezilgan kartoshkani olib, og'ziga soldi. Yaxshilab qaynatilgan ezma kartoshka cho'chqa yog'ining xira ta'mi va aynan yetarli tuz bilan aralashgandi. Bu ishtahasini ochib, og'zini suvga to'ldirdi.
+
+— Yomon... emas... Yomon emas, — maqtadi Benson mavhum qilib. — Ishxonada yegandan ancha mazali. Ular faqat sariyog' ishlatishgandi.
+
+Bu mening eng zo'r taomlarimdan biri-da... Klein maqtovni qabul qildi.
+
+— Bularning bari Uelchnikidagi oshpazning ta'limoti tufayli.
+
+Melissa mol go'shti sho'rvasiga qaradi. Yashil rayhon barglari, yashil salat boshlari va turplar rangsiz sho'rvada cho'kib, mayin mol go'shtini qoplagandi. Sho'rva tiniq, xushbo'yligi maftunkor edi. U bir bo'lak go'shtni vilka bilan olib, og'ziga soldi va chaynadi.
+
+Mol go'shti mayin dimlangan bo'lsa-da, biroz tishlanadigan edi. Tuz, turplarning shirinligi va rayhon barglarining achchiqligi aralashmasi go'shtning lazzatini to'ldirardi.
+
+— ... — U go'yo ma'qullagandek edi, ammo chaynashini to'xtatolmadi.
+
+Klein tatib ko'rib, mazali bo'lsa-da, afsussiz emasligini his qildi. Bu hamon uning odatdagi darajasidan ancha yiroq edi. Axir, unga ayrim ziravorlar yetishmasdi, faqat o'rnini bosuvchilardan foydalana olardi. Ta'mi boshqacha bo'lgani bejiz emasdi. Albatta, eng yaxshi darajada ham, odam o'zi pishirgan taom bilan kifoyalanishi mumkin edi. Birdan dunyoqarashi cheklangan Benson va Melissaga ichi achidi.
+
+Bir bo'lak mol go'shtini yutgach, Klein zira va rozmarin sepilgan, bir bo'lak qovurilgan Tussok baliqni oldi. U tashqaridan xirillama, ichidan mayin edi. Kuyik aynan tilla-jigarrang, sho'rlik va moy xushbo'yligi bir-biriga chirmashgandi. Yengilgina bosh irg'ab, Klein bir bo'lak dimlangan rovochni tatib ko'rdi va uni yoqimli topdi. U go'shtning bezdiruvchi ta'mini ketkazdi.
+
+Oxiri u jasoratini to'plab, bir kosa quyuq no'xat sho'rvasini olib quydi.
+
+Juda shirin va juda nordon... Klein qoshini chimirmasdan turolmadi. Biroq Benson va Melissa uni tatib ko'rib mamnun ko'rinishganini ko'rgach, o'z didiga shubha qila boshladi. Tilini tozalash uchun bir yutim zanjabil pivosini ichmasdan turolmadi.
+
+Ovqat oxirida aka-singillar to'yib ketdi. Ular ancha vaqt stullarda yastanib o'tirishdi.
+
+— Yana bir bor Bekani ulug'laylik! — Benson atigi bir yutim qolgan zanjabil pivosini ko'tarib, mamnun dedi.
+
+— Bekani ulug'lasin! — Klein ichimligining so'nggi qatrasini ichdi.
+
+— Bekani ulug'lasin. — Melissa nihoyat limonli pudingning so'nggi bo'lagini og'ziga solib, og'zida o'ynayotgan ta'mlardan zavqlandi.
+
+Buni ko'rgan Klein kayfi oshganidan foydalanib jilmaydi.
+
+— Melissa, bunday emas. Eng mazali deb topgan narsangni avval yeyishing kerak. Shunda uning eng mazali jihatlarini to'la qadrlaysan. To'yib-to'shilgandan keyin tatib ko'rsang, taomga adolat bo'lmaydi.
+
+— Yo'q, u baribir bo'lishi mumkin bo'lgan darajada mazali, — javob berdi Melissa qat'iy va o'jarlik bilan.
+
+Aka-singillar quvnoq suhbatlashdi, ovqatlari hazm bo'lgach, lagan, qoshiq-pichoqni yuvib, baliq qovurishga ishlatilgan moyni saqlab qo'yishdi. Band bo'lishgach, takrorlash payti keldi. Biri buxgalteriya bilimini yangilar, ikkinchisi o'quv materiali va qaydlarni o'qishda davom etardi. Vaqt to'la-to'kis sarflandi.
+
+Soat o'n birda aka-singillar gaz chirog'ini o'chirib, yuvinib uxlashga yotishdi.
+
+...
+
+Klein garangsib, ro'parasidagi zulmatga tikildi. Birdan Kleinning ko'z o'ngida qora plash va kalta silindr shlyapa kiygan bir qiyofa paydo bo'ldi. Bu Dunn Smit edi.
+
+— Kapitan! — Klein cho'chib o'ziga keldi va tush ko'rayotganini angladi.
+
+Dunnning kulrang ko'zlari xotirjam edi, go'yo arzimas bir narsani tilga olayotgandek:
+
+— Kimdir xonangga sirg'alib kirdi. Revolveringni ol va uni koridorga siqib chiqar. Qolganini bizga qoldir.
+
+Kimdir xonamga sirg'alib kirdimi? Kuzatuvchi nihoyat harakatga keldimi? Klein qo'rquvdan sapchib tushdi, ammo boshqa savol berishga jur'at eta olmadi. U faqat bosh irg'ab dedi:
+
+— Mayli!
+
+Ko'z oldidagi sahna darrov o'zgardi, pufakchalar yorilgandek bir parcha ranglar paydo bo'ldi.
+
+Kleinning ko'zlari ochildi, u ehtiyotkorlik bilan boshini burdi. Deraza tomon qaradi va stoli yonida turgan ozg'in, ammo notanish bir orqani — jimgina biror narsa titkilab izlayotgan kimsani ko'rdi.
+
+
+# BOB 28: Sirli Tariqat
+
+Dukk! Dukk! Dukk! Kleinning yuragi tez ura boshladi. U bir uyumga siqilib, so'ng birdan kengaydi. Bu uning tanasini yengilgina titratdi. Bir lahza u nima qilishi kerakligini deyarli unutib qo'ydi — toki pana bo'lib turgan qiyofa birdan to'xtaguncha. Qiyofa quloqlarini biroz ding qildi — go'yo biror o'zgarishni tinglayotgandek.
+
+Qon miyasiga qaytib oqdi, Klein asosiy idrok qobiliyatini tikladi. U yostiq ostidan revolverning yog'och sopini paypaslab topdi. Pishiq, ammo silliq tuyg'uni sezib, tez xotirjam bo'ldi. U jimgina va sekin revolverni sug'urib, uni bostirib kirgan kimsaning boshiga mo'ljal oldi.
+
+Rostini aytsam, uni o'qqa tutishga ishonchi yo'q edi. Garchi mashqda nishonga barqaror tega olgan bo'lsa-da, harakatlanayotgan odam va qimirlamas nishon butunlay boshqa narsa edi. U ikkalasini chalkashtiradigan darajada manman emasdi.
+
+Biroq o'tgan hayotidan biror narsani xira eslardi; umumiy ma'no shuki, yadroviy qurol eng katta kuchini uchirilishidan oldin namoyon qilardi. Bu tamoyil uning hozirgi vaziyatiga ham to'g'ri kelardi. Eng yaxshi qo'rqitish — o'q uzilishidan oldin edi!
+
+Tepkini bosmasdan yoki ko'r-ko'rona otmasdan, bostirib kirgan kimsa Kleinning uni mutlaqo nishonga tegizolmasligi ehtimoli juda yuqori bo'lgan g'irt yangi-yashilmi yoki yo'qmi — buni aniqlay olmasdi. Uning tashvishi va qo'rquvi ko'proq o'ylanishga, natijada o'zini tiyishga majbur qilardi!
+
+Bir zumda unda yana bir o'y paydo bo'ldi. Bu Kleinni darrov qat'iy qildi. U xatarga duch kelganda xotirjamlashadigan turdagi odam emasdi; aksincha, u kuzatuvchiga ro'baro' bo'lgan vaziyatni allaqachon xayolida jonlantirgandi — hujum o'rniga qo'rqitishni. Taomxo'rlar imperiyasida bir maqol bor edi: Ehtiyotni qo'ldan bermasang, balodan xoli bo'lasan!
+
+Klein qurolini bostirib kirgan kimsaga to'g'rilaganda, ozg'in kishi birdan qotib qoldi — go'yo bir narsani sezgandek. Shundan so'ng u kulgini yashirgan bir ovozni eshitdi:
+
+— Xayrli kech, janob. — Ozg'in kishi ikki qo'lini bir-biriga chalishtirdi, tanasi taranglashganga o'xshardi.
+
+Klein pastki yotoqda o'tirib, kishining boshiga revolver bilan mo'ljal olgancha, imkon qadar bemalol va tabiiy gapirishga urindi.
+
+— Iltimos, ikki qo'lingizni ko'taring va o'giriling. Buni sekin qilishga harakat qiling. Rostini aytsam, men juda qo'rqoqman va tez asabiylashaman. Agar juda tez harakat qilsangiz, cho'chib ketishim mumkin, o'q tasodifan uzilib ketmasligiga ham kafolat bera olmayman. Ha, shunday.
+
+Ozg'in kishi ikki qo'lini ko'tarib, boshi yonida ushlab turdi, so'ng gavdasini sekin-sekin burdi. Birinchi ko'zga tashlangani — saranjom tugmali qora tor kostyum bo'ldi. So'ng u qalin va o'tkir bir juft jigarrang qoshni ko'rdi. Bostirib kirgan kimsaning teran ko'k ko'zlari qo'rquvni aks ettirmas, aksincha, vahshiy bir yirtqichning shiddati bilan Kleinga tikilardi. Go'yo Klein bir soniya beparvolik qilsa, narigi taraf otilib chiqib, uni tilka-pora qilib tashlaydigandek edi.
+
+U sopni mahkam siqib, imkon qadar xotirjam va befarq ko'rinishga urindi. Faqat ozg'in kishi unga butunlay yuzlanganda, Klein iyagi bilan eshikka ishora qildi. Ohista va mayinlik bilan dedi:
+
+— Janob, kelinglar, buni tashqarida hal qilamiz. Boshqalarning go'zal tushini buzmang. Voy, harakatlaringizni sekin tuting. Qadamlaringizni ham biroz yengillashtiring. Bu janob uchun oddiy odob.
+
+Ozg'in kishining sovuq qorachiqlari aylanib, Kleinga bir nazar tashladi. U qo'llarini ko'tarishda davom etib, sekin eshik tomon yurdi. Revolver mo'ljali ostida tutqichni burib, eshikni sekin ochdi. Eshik yarim ochilganda, u birdan pastga engashib, oldinga dumalab ketdi. Eshik kuchli shamol bilan tortilib, gursillab yopildi.
+
+— Uh... — Yuqori yotoqdagi Benson qo'zg'aldi. U garangsib uyg'onayozdi.
+
+Shu payt tashqaridan bemalol va osoyishta bir kuy kirib keldi. Og'ir va dilkash bir ovoz kuylay boshladi.
+
+— Eh, dahshat tahdidi, qirmizi faryod umidi!
+
+— Bir narsa aniq, hech bo'lmaganda — bu Hayot uchib o'tar;
+
+— Bir narsa aniq, qolgani esa — yolg'on;
+
+— Bir bor ochilgan Gul bir kun abad so'lar...
+
+She'rda go'yo boshqalarni tinchitib, bo'shashtirish kuchi bor edi. Yuqori yotoqdagi Benson va boshqa xonadagi Melissa yana garangsib uyquga ketishdi.
+
+Kleinning ham tani-yu joni tinch va osoyishta bo'ldi. U deyarli esnab yubordi. Ozg'in kishining qochib ketishi shu qadar chaqqon ediki, u o'z vaqtida munosabat bildira olmagandi.
+
+Yopiq eshikka qarab, u jilmayib o'ziga o'zi pichirladi:
+
+— Ishonmasliging mumkin, lekin tepkini bossang ham, o'q uzilmasdi. — Tasodifan o'q uzilishining oldini olish uchun bo'sh kamera!
+
+Shundan so'ng Klein tashqaridagi jang tugashini sabr bilan kutib, yarim tun she'rini tingladi. Bir daqiqaga yetmay, ko'l yuzasidagi oy aksini eslatuvchi osoyishta kuy to'xtadi, qorong'i tun esa o'zining teran sukunatini tikladi.
+
+Klein jimgina barabanni aylantirib, bo'sh kamerani chetga surdi va natijani kutdi. U bezovta holda to'la o'n daqiqa kutdi. Borib ko'rsammikan deb o'ylab turganda, eshik tomondan Dunn Smitning vazmin va iliq ovozini eshitdi.
+
+— Hal bo'ldi.
+
+Uf. Klein nafas chiqardi. Revolverini ushlab, kalitini oldi. Yalangoyoq, ehtiyotkorlik bilan eshikka yaqinlashib, jimgina ochdi va qora plash hamda kalta silindr shlyapani ko'rdi. Dunn Smit o'sha yerda, teran va xotirjam kulrang ko'zlari bilan turardi.
+
+U ortidan eshikni yopib, Dunn ortidan koridor oxiriga bordi va xira qirmizi oy nuri orasida turdi.
+
+— Uning tushiga kirishimga biroz vaqt ketdi, — dedi Dunn xotirjam, deraza ortidagi qizil oyga qararkan.
+
+— Uning kimligini bilasizmi? — Klein ancha yengil tortdi.
+
+Dunn bosh irg'ab dedi:
+
+— Sirli Tariqat deb ataluvchi qadimiy tashkilot. Ular To'rtinchi Davrda tashkil etilgan va Sulaymon imperiyasi hamda o'sha davrning bir necha tanazzulga uchragan zodagonlari bilan bog'liq. He, Antigonus xonadoni kundaligi ulardan kelgan. Bir a'zoning beparvoligi tufayli, u antikvar bozoriga tushib, Uelchning qo'liga o'tgan. Ular noiloj uni izlash uchun odam jo'natishga majbur bo'lishgan.
+
+Kleinning savolini kutmay, u to'xtab, davom etdi:
+
+— Biz ularning qolgan a'zolarini ip uchlariga ko'ra qo'lga olamiz. Xo'sh, oxiri unchalik yaxshi bo'lmasligi mumkin. Bu kimsalar kanalizatsiyadagi kalamushlardek yashirinishda usta. Ammo hech bo'lmasa, ular biz Antigonus xonadoni daftarini qo'lga kiritgan bo'lsak kerak yoki muhim bir ip uchini topgandirmiz deb ishonishadi. Bunday holatda, u nihoyatda muhim yoki ahamiyatli narsa bo'lmasa, ular operatsiyani tark etadi. Bu — ularning omon qolish falsafasi.
+
+— ...Agar daftar nihoyatda muhim va ahamiyatli bo'lsa-chi? — so'radi Klein xavotirlanib.
+
+Dunn javob bermay jilmaydi. Buning o'rniga dedi:
+
+— Biz Sirli Tariqat haqida juda kam bilamiz. Bu safargi muvaffaqiyatimiz butunlay sening o'tkir aqling tufayli. Bu hissa to'la sening hissang. Yashirin xatarlar bo'lishi ehtimoli va kuchaygan sezgi daftarni topishga yordam berishini hisobga olib, senga tanlash imkoniyati berilyapti.
+
+— Tanlash imkoniyati? — Klein xira bir narsani taxmin qildi, nafasi beixtiyor og'irlashdi.
+
+Dunn yuzidan tabassumni artib, bor jiddiyligi bilan dedi:
+
+— Beyonder bo'lishni istaysanmi? Faqat to'liq bo'lmagan Sequencening boshlang'ich darajasini tanlay olasan.
+
+— Albatta, bu imkoniyatdan voz kechib, to'plagan xizmatingni jamg'arishni tanlashing ham mumkin. Shunda qiladigan yagona ishing — Uyqusiz bo'lishingga yetarli o'rin bo'lguncha kutish. Bu ayni paytda ma'budaning Tungi Lochinlarga ato etgan birinchi, to'liq Sequencei ham.
+
+Haqiqatan ham... Klein quvondi va hech ikkilanish hissi bo'lmadi. U o'zi tashabbus bilan so'radi:
+
+— Unda men qaysi Sequence 9 lardan birini tanlay olaman? — Voz kechish yoki qabul qilish, shuningdek, qaysi birini tanlashni hal qilish uchun menga batafsil ma'lumot kerak!
+
+Dunn o'girildi va unga tushayotgan qirmizi pardaga burkangandek ko'rindi. Kleinning ko'ziga qarab sekin dedi:
+
+— Uyqusizdan tashqari, cherkovda uchta Sequence 9 iksir formulasi bor. Ulardan biri — Sir Ochuvchi, bu ayni paytda keksa Neyl egallagan kuch. He, Rozanna buni senga aytgan bo'lsa kerak. U hech qachon tilini tiyolmaydi.
+
+Klein noqulay jilmaydi, javob topolmadi. Yaxshiyamki, Dunn buni e'tiborga olmay davom etdi:
+
+— Bizning Sir Ochuvchi iksir formulamiz va bevosita bog'lanmagan keyingi Sequencelar Muso Zohidlar Tariqatidan olingan. O'shanda ular hali tanazzulga uchramagan deyishardi. Ular axloq va aqidalarida sobit turib, bilimga intilishda qat'iyatli edi. Sirlarini qat'iy maxfiy saqlashardi. Tariqatga kirgan har kim Sir Ochuvchi bo'lganidan keyin besh yil davomida gapirishdan man etilardi. Ular diqqatini tarbiyalab, kuchaytirish uchun sukut saqlashni o'rganardi. Muso Zohidlar Tariqatining shiori — istaganingni qil, ammo zarar yetkazma — ulardan boshlangan.
+
+— Sir Ochuvchilar sehr, jodu, astrologiya va boshqa sirli bilimlarni keng, ammo ibtidoiy darajada tushunadi va egallaydi. Ular anchagina sehrli marosimlarni ham biladi, ammo modda orasiga yashiringan ayrim mavjudotlarni osongina sezadi. Shu bois ular Beyonder sifatidagi kuchlariga ehtiyotkor bo'lib, hurmat ko'rsatishlari kerak.
+
+— Bizda bu Sequencening katta qismi yo'q, shu bois u to'liq bo'lmagan zanjir. Masalan, uning Sequence 8 i. Albatta, ehtimol, Muqaddas soborda bordir.
+
+Bu mening barcha talablarimga deyarli mos keladi... Klein yengilgina bosh irg'adi, hatto tanlash istagi paydo bo'ldi. Yaxshiyamki, u ayrim narsalarni hamon eslardi.
+
+— Boshqa ikkitasi-chi?
+
+— Ikkinchi turi Murda Yig'uvchi deb ataladi. Janubiy Qit'ada O'limga sig'inadigan anchagina tariqatchi uni tanlaydi. Iksirni iste'mol qilgandan keyin, aqlsiz o'lik ruhlar ularni o'zlaridan biri deb o'ylab, hujum qilmaydi. Ular sovuq, chirish va murda aurasining yemiruvchanligiga qarshi chidamga ega bo'ladi. Ular yovuz ruhlarning bir qismini bevosita ko'ra oladi, o'liklarning xususiyatlari va zaif tomonlarini ko'radi, shuningdek, ayrim qobiliyat oshishlariga ega bo'ladi. Bizda uning keyingi Sequence 8 va Sequence 7 i bor. He-he, Sequence 7 ni taxmin qilsang kerak — Ruh Mediumi! Buni o'shanda Deyli tanlagandi, — batafsil tasvirladi Dunn.
+
+Ruh Mediumi rostdan ham sirli va salobatli ko'rinadi, ammo men eng ko'p sirli ilmni egallashni istayman... Klein gapga aralashmadi; faqat jimgina tingladi.
+
+Dunn Smit yon tomonga — qirmizi oyga qarab dedi:
+
+— Uchinchi turining bizda faqat Sequence 9 i bor. Muqaddas soborda bormi-yo'qmi, bilmayman. U Ko'ruvchi deb ataladi.
+
+Ko'ruvchi? Kleinning qorachiqlari toraydi, u imperator Roselle kundaligida qoldirgan afsusni esladi: u Shogird, Qaroqchi yoki Ko'ruvchini tanlamaganidan afsuslangandi!
+
+
+# BOB 29: "Ish" va Ijara — Jiddiy Masala
+
+Klein imkon qadar odatdagi holini saqlashga urinib, chinakam qiziqish bilan so'radi:
+
+— Ko'ruvchilarda qanaqa qobiliyatlar bo'ladi?
+
+— Savoling noaniq; savol "Ko'ruvchi iksirini iste'mol qilish qanaqa qobiliyatlar beradi?" bo'lishi kerak. — Dunn Smit bosh chayqab kulimsiradi. Uning kulrang qorachiqlari va yuzi oydan o'girildi, qiyofasi soyaga yashirindi. — Bunda ko'p narsa ishtirok etadi — yulduzlardan bashorat, kartalardan bashorat, ruhiy mayatniklar va ko'zguda ko'rish. Albatta, bu iksirni iste'mol qilish darrov ularning barini egallash imkonini beradi degani emas. Iksir senga faqat uni o'rganish malakasi va qobiliyatini beradi, xolos.
+
+— Dushmanlarga qarshi bevosita kurashish vositasi yo'qligi sababli, he. Sehrli marosim o'rnatish ko'p tayyorgarlik talab qilishini tasavvur qila olsang kerak. U jangga mos emas. Shu bois sirli ilm jihatidan Ko'ruvchi Sir Ochuvchidan ko'ra bilimliroq va kasbiyroq bo'ladi.
+
+Bu ham talablarimga mos eshitilyapti... Biroq dushman bilan bevosita ish ko'rish vositasi yo'qligi ancha boshog'riq... Qolaversa, Abadiy Tun ma'budasi cherkovida keyingi Sequencelar yo'q bo'lsa kerak... Muqaddas sobor — qarorgoh, Osoyishtalik sobori bo'lsa kerak... Past Sequence Beyonderlarining dushmanga qarshi vositalari o't ochar qurollarga teng kelmasligi mumkin...
+
+Klein chuqur o'yga botib, miyasini ishlatdi. U Sir Ochuvchi bilan Ko'ruvchi o'rtasida u yoqdan-bu yoqqa borib-keldi. Murda Yig'uvchini endi o'ylamadi ham.
+
+Dunn Smit buni ko'rib jilmaydi.
+
+— Qaror qabul qilishga shoshilishing shart emas. Javobingni dushanba ertalab ayt. Sequence tanlasangmi yoki bu imkoniyatdan voz kechsangmi — Tungi Lochinlardan birortamizda bu borada boshqa o'y bo'lmaydi.
+
+— Tinchlanib, yuragingga quloq sol.
+
+Shunday derkan, u qalpog'ini yechib, yengilgina ta'zim qildi. Kleinning yonidan sekin o'tib, zinapoya tomon yo'l oldi.
+
+Klein bir og'iz ham so'z aytmadi, darrov javob ham bermadi. Jimgina ta'zim qilib, Dunnning ketishini kuzatdi.
+
+Garchi u avval doimo Beyonder bo'lishni umid qilgan bo'lsa-da, imkoniyat tug'ilganda boshi qotdi; keyingi yetishmagan Sequencelar, Beyonderlarda nazoratni yo'qotish xavfi, imperator Roselle kundaliklarining ishonchliligi va odamlarni telbalikka burib yuborishi mumkin bo'lgan xayoliy pichirlashlar — bularning bari aralashib, uning oldinga intilishiga to'siq bo'lgan bir handaq hosil qildi.
+
+U chuqur nafas olib, sekin chiqardi.
+
+— Qanchalik yomon bo'lsa ham, o'n sakkiz yoshli yuqori sinf o'quvchisiga o'z kelajak kasbini hal qildirishdan battar bo'lolmaydi... — Klein o'zini mazax qilgandek kulimsiradi.
+
+Sochilgan o'ylarini jamlab, eshikni ohista ochib, karavotga qaytib yotdi. Ko'zlari ochiq yotib, oyning xira qirmizisiga bo'yalgan yuqori yotoqning tagiga jimgina tikildi.
+
+Deraza tashqarisida bir mast gandiraklab o'tdi, bir arava huvillagan ko'chalar bo'ylab uchib ketdi. Bu shovqinlar tunning osoyishtaligini buzmas, aksincha, uni yanada qorong'i va yiroq qilardi.
+
+Kleinning hissiyotlari tinchlandi, u Yerdagi o'tmishini esladi. U mashq qilishni qanchalik yaxshi ko'rganini, doimo baland ovozda gapiradigan otasini, surunkali kasalligiga qaramay o'zini band qilishni yoqtiradigan onasini, u bilan birga ulg'aygan do'stlarini — futbol, basketbol kabi sportdan tortib, o'yinlar va mahjonggacha, shuningdek, muvaffaqiyatsiz sevgi izhor qilgan kishini esladi...
+
+Bular jim bir daryoga o'xshardi; unda ko'p to'lqin yoki teran hissiyot yo'q edi, ammo u uning qalbini jimgina cho'ktirardi. Ehtimol, odam biror narsani yo'qotgandan keyingina uni qadrlashni o'rganadi.
+
+Qirmizilik chekinib, osmon olovli to'pning yog'dusidan tilla-sariq bo'lganda, Klein tanlovini qilib bo'lgandi.
+
+...
+
+U karavotdan turib, umumiy hammomga borib, uyg'onish uchun yuzini yuvdi. So'ng bir-soli banknoti bilan Vendi xonimnikiga borib, to'qqiz pensga sakkiz funt javdar non sotib oldi va kechagi tunda iste'mol qilingan asosiy taomni to'ldirdi.
+
+— Non narxi barqarorlasha boshlabdi... — izoh berdi u nonushtadan keyin, Benson kiyinarkan.
+
+Bugun yakshanba edi, shu bois u ham, Melissa ham nihoyat dam olish imkoniga ega bo'lishdi. Allaqachon durust kiyingan Klein stulda o'tirib, kecha olib kelgan eskirgan gazetalarni varaqlardi.
+
+U hayrat bilan dedi:
+
+— Bu yerda ijaraga uy bor ekan: Shimoliy mahalla, Vendel ko'chasi, 3-uy, ikki qavatli alohida uy. Olti yotoqxona, uchta hammom va yuqorida ikkita katta balkon bor. Pastda ovqatlanish zali, mehmonxona, oshxona, ikkita hammom va ikkita mehmon xonasi, shuningdek, yer osti omborxonasi bor... Uy oldida ikki akr xususiy yer, ortida esa kichik bog'. Uni bir, ikki yoki uch yilga ijaraga olsa bo'ladi, haftalik ijara haqi bir funt-u olti soli. Qiziqqanlar Shampan ko'chasiga borib, janob Gusevni topishlari mumkin.
+
+— Bu — bizning kelajakdagi maqsadimiz. — Benson qora kalta silindr shlyapasini kiyib, jilmayib dedi: — Gazetalardagi joylar ijarasi odatda biroz qimmatroq bo'ladi. Tingen Shahar Uy-joy Yaxshilash Kompaniyasida ulardan qolishmaydigan, ammo arzonroq variantlar bor.
+
+— Nega Tingen Ishchilar Sinfi uchun Uy-joyni Yaxshilash Uyushmasidan qidirmaymiz? — Melissa xonasidan eski, to'rli qalpoq ushlab chiqdi. U bir necha bor yamalgan kulrang-oqish uzun ko'ylakka o'zgartirgandi. U jimjit va o'zini tortib turardigan bo'lsa-da, bu uning yoshligini yashira olmasdi.
+
+Benson kulib dedi:
+
+— Tingen Ishchilar Sinfi uchun Uy-joyni Yaxshilash Uyushmasini qayoqdan eshitding? Jennidanmi? Roshel xonimdanmi? Yo yaqin do'sting Selenadanmi?
+
+Melissa yon tomonga qarab, pichirlab javob berdi:
+
+— Roshel xonimdan... Kecha yuvinayotganimda unga tasodifan duch keldim. U mendan Kleinning suhbati haqida so'radi, men unga taxminan nima bo'lganini aytdim. So'ng u menga Tingen Ishchilar Sinfi uchun Uy-joyni Yaxshilash Uyushmasini topishni maslahat berdi.
+
+Benson Kleinning gangigan ifodasini payqab, kulgisi qistab bosh chayqadi.
+
+— Ular kambag'allarga mo'ljallangan. Xo'sh, aniqroq ta'rifi — ular jamiyatning quyi qatlami uchun uy-joy uyushmasi. Ular asosan umumiy hammomli uylar quradi va ta'mirlaydi. Ular faqat uch xil tanlov beradi — bir, ikki yoki uch yotoqxonali. Shunday muhitda yashashda davom etmoqchimisan?
+
+— Tingen Shahar Uy-joy Yaxshilash Kompaniyasida ham ularnikiga o'xshash biznes bor, ammo ular o'rta-quyi tabaqa uchun ham tanlovlar beradi. Rostini aytsam, biz o'rta-quyi tabaqadan biroz yaxshiroqmiz, ammo chinakam o'rta tabaqa oilalardan hamon ancha pastroqmiz. Bu maosh masalasi emas; shunchaki bizda pul yig'ishga vaqt bo'lmadi.
+
+Klein anglagandek bo'lib, gazetani yig'ishtirdi. Silindr shlyapasini olib, o'rnidan turdi.
+
+— Unda, ketdik.
+
+— Esimda, Tingen Shahar Uy-joy Yaxshilash Kompaniyasi Nargis ko'chasida, — dedi Benson eshikni ocharkan. — Ular Tingen Ishchilar Sinfi uchun Uy-joyni Yaxshilash Uyushmasiga o'xshab, "Besh Foizli Xayriyalar" deb ataladi. Nega ekanini bilasanmi?
+
+— Bilmayman. — Klein hassasini ko'tarib, Melissaning yoniga keldi. Beligacha tushadigan qora sochli qiz bosh irg'adi.
+
+Benson tashqariga chiqib dedi:
+
+— Bunday uy-joy yaxshilash uyushmalari yoki kompaniyalari Backlund tufayli tashkil etilgan. Ular uch yo'l bilan moliyalashtiriladi: bir, xayriya jamg'armalaridan xayriya so'rab. Ikki, moliyalashtirish takliflari orqali. Ular hukumat komissiyasidan maxsus 4 foizlik stavkada grant oladi. Uch, sarmoyalar orqali. Olingan ijaraning bir qismidan sarmoyadorlariga 5 foiz daromad berishadi. Shuning uchun ular "Besh Foizli Xayriyalar" deb ataladi.
+
+Aka-singillar zinadan tushib, sekin Nargis ko'chasi tomon yurishdi. Ular hozirgi uy egasi janob Franki bilan gaplashishdan oldin bir joyni aniqlab olishga qaror qilishdi. Ular borar joyi yo'q paytda ko'chishga majbur bo'ladigan vaziyatga tushishni istamasdi.
+
+— Selenadan eshitishimcha, sof xayriya sifatida ishlaydigan uy-joy yaxshilash kompaniyalari bor ekan? — so'radi Melissa o'ylanib.
+
+Benson kulimsiradi.
+
+— Bor, masalan, ser Dyuivill pul xayriya qilib tashkil etgan Dyuivill Jamg'armasi. U ishchilar sinfiga mo'ljallangan kvartiralar quradi. Shuningdek, juda past ijara haqi olib, maxsus boshqaruv xodimlari bilan ta'minlaydi. Biroq ariza topshirish mezonlari juda qattiq.
+
+— Bu g'oya senga yoqmasga o'xshaydi-ya? — Klein buni o'tkir sezib, jilmayib so'radi.
+
+— Yo'q, men ser Dyuivillni juda hurmat qilaman, ammo aminmanki, u chinakam qashshoqlik nimaligini bilmaydi. Uning kvartirasida yashash — ruhoniy umid berganga o'xshaydi. Bu unchalik amaliy emas. Masalan, ijarachilar asosiy emlashlarni olishlari va navbatma-navbat hammomni tozalashlari kerak. Ular kvartiralarini qayta ijaraga bera olmaydi yoki uni tijorat faoliyati uchun ishlatolmaydi. Axlatlarini xohlagancha tashlashga ruxsat yo'q, bolalar koridorda o'ynashdan to'xtatiladi. Ma'budam, u hammani xonim va janob qilmoqchimi? — javob berdi Benson odatdagi ohangida.
+
+Klein qoshini chimirib shubhalandi.
+
+— Muammoli eshitilmayapti. Bularning bari juda oqilona mezonlar.
+
+— Ha. — Melissa ma'qullab bosh irg'adi.
+
+Benson boshini qiyshaytirib ularga qaradi, so'ng kulimsiradi.
+
+— Ehtimol, men ikkalangizni shu qadar yaxshi pana qilganmanki, siz chinakam qashshoqlikni ko'rmagansiz. Sizningcha, ularda asosiy emlash uchun pul bo'larmidi? Bepul xayriya tashkilotidagi navbat ularni uch oyga orqaga suradi.
+
+— Sizningcha, ularning ishi barqaror, vaqtinchalik emasmi? Agar ular kvartirasining bir qismini qayta ijaraga berib, biroz qo'shimcha daromad ololmasa, ishini boy berganda ko'chib chiqishlari kerakmi? Qolaversa, ko'p ayollar tirikchilik uchun uyda kiyim yamaydi yoki gugurt qutilari yasaydi. Bular tijorat faoliyatiga kiradi. Ularning barini quvib chiqarasanmi?
+
+— Kambag'allarning ko'pchiligi tirik qolish uchun bor kuchini sarflaydi. Sizningcha, ularda bolalarini tarbiyalab, koridorda yugurishdan to'xtatishga vaqt bo'larmi? Ehtimol, ular bolalarini ulg'ayguncha faqat uyda qamab qo'ya oladi, so'ng yetti-sakkiz yoshga borganda, ularni bola mehnatini qabul qiladigan joylarga jo'natadi.
+
+Ben masalani tasvirlash uchun ko'p sifat ishlatmadi; bu Kleinni biroz junjiktirdi. Quyi ijtimoiy tabaqa odamlari shunday yashardimi?
+
+Uning yonida Melissa jim qoldi. Ancha vaqtdan keyin u jismsiz bir ohangda dedi:
+
+— Jenni Quyi ko'chaga ko'chgandan keyin men uni yo'qlab borishimni boshqa istamadi.
+
+— Umid qilaylik, otasi o'sha jarohatdan keyin oyoqqa turib, barqaror ish topar. Biroq men o'zini gangitish uchun ichkilikni ishlatadigan juda ko'p mastni ko'rganman... — Benson ma'yus ohangda kuldi.
+
+Klein nima deyishini bilmay qoldi. Melissa ham xuddi shunday edi. Shu bois aka-singillar jimgina Nargis ko'chasi bo'ylab yurib, Tingen Shahar Uy-joy Yaxshilash Kompaniyasini topishdi.
+
+Ularga xizmat qilgan kishi mehribon tabassumli o'rta yoshli erkak edi. U rasmiy kiyim yoki qalpoq kiymagan, buning o'rniga oq ko'ylak va qora jiletka kiygandi.
+
+— Meni Skarter deb chaqirsangiz bo'ladi. Qanaqa uy ko'nglingizda borligini bilsam bo'ladimi? — U Kleinning kumush qadalgan hassasiga ko'z tashlaganda, tabassumi kengaydi.
+
+Klein so'zga ustaroq bo'lgan Bensonga qarab, javob berishni ishora qildi.
+
+Benson to'g'ridan-to'g'ri javob berdi:
+
+— Qator uy.
+
+Skarter qo'lidagi fayl va hujjatlarni varaqlab, jilmaydi.
+
+— Hozir ijaraga berilmagan beshtasi bor. Rostini aytsam, biz ko'proq mijozlarga — uy-joy qiyinchiligi bor, bir uyga olti, sakkiz, hatto o'n yoki o'n ikki kishi tiqilib yashaydigan ishchilar va ularning bolalariga xizmat qilamiz. Qator uylar ko'p emas. Bittasi Nargis ko'chasi, 2-uyda, bittasi Shimoliy mahallada, bittasi Sharqiy mahallada... Haftalik ijara haqi 12 dan 16 soligacha. Bu yerda batafsil tavsiflarni ko'rishingiz mumkin.
+
+U Benson, Klein va Melissaga bir hujjat uzatdi.
+
+Uni o'qib chiqqach, aka-singillar bir-biriga qarashdi va bir vaqtning o'zida qog'ozdagi bir joyga ishora qilishdi.
+
+— Avval Nargis ko'chasi, 2-uyni ko'rib chiqaylik, — dedi Benson. Klein va Melissa javoban bosh irg'ashdi.
+
+Bu yer ular yaxshi taniydigan mahalla edi.
+
+
+# BOB 30: Yap-yangi Boshlanish
+
+Nargis ko'chasi 2, 4 va 6-uylar ko'p qirrali qiya tomli qator binolar edi. Tashqi tomoni kulrang-ko'k rangga bo'yalgan, uchta mo'ri ko'tarilib turardi. Bu yerda, ko'rinib turibdiki, maysazor, bog' yoki ayvon yo'q edi. Kirish joylari to'g'ridan-to'g'ri ko'chaga qaragandi.
+
+Tingen Shahar Uy-joy Yaxshilash Kompaniyasidan Skarter bir dasta kalit chiqarib, eshikni ocharkan tanishtirdi:
+
+— Bizning qator uylarimizda dahliz yo'q, shu bois to'g'ridan-to'g'ri mehmonxonaga kirasiz. Nargis ko'chasiga qaragan chiqma deraza bor, shu bois yorug'lik ancha yaxshi...
+
+Klein, Benson va Melissani quyoshning tilla nuriga cho'milgan matodan divan va avvalgi ikki xonali kvartiralaridan kengroq maydon kutib oldi.
+
+— Bu mehmonxona mehmon zali sifatida ishlatilishi mumkin. O'ng tomonida ovqatlanish xonasi, chap tomonida esa qishda sizni isitib turadigan kamin bor. — Skarter o'ziga juda tanish tarzda atrofga ishora qildi.
+
+Klein atrofga alanglab, bu qo'pol, ochiq uslubdagi konsepsiya ekanini tasdiqladi. Ovqatlanish xonasi va mehmonxona hech qanday to'siq bilan ajratilmagan, ammo ular chiqma derazadan ham uzoq edi, bu o'sha joylarni ancha xira qilardi. To'rtburchak qizil yog'och stol atrofini yumshoq yostiqli oltita qattiq yog'och stul o'rab turardi. Chap devordagi kamin Klein avval ko'rgan chet el kinolari va seriallaridagilarga aynan o'xshardi.
+
+— Ovqatlanish joyi ortida oshxona bor, ammo biz hech qanday jihoz bermaymiz. Mehmonxona ro'parasida kichik mehmon xonasi va hammom bor... — Skarter aylanib, uyning qolgan tartibini tasvirladi.
+
+Hammom ikki qismga bo'lingandi. Tashqi qism kishi yuz yuvib, tish tozalaydigan joy, ichki qism esa hojatxona edi. Ularni garmoshkasimon eshik ajratib turardi. Mehmon xonasi kichik deyilgandi, ammo u Melissa hozir yashaydigan xona kattaligida edi. Buni ko'rib u dovdirab qoldi.
+
+Birinchi qavatni ko'zdan kechirgach, Skarter uchovlonni hammom yonidagi zinapoyaga olib bordi.
+
+— Pastda yer osti omborxonasi. U yerda havo ancha dim, shu bois kirishdan oldin biroz toza havo kiritishni unutmang.
+
+Benson beg'amgina bosh irg'ab, Skarter ortidan ikkinchi qavatga ko'tarildi.
+
+— Chap tomonimda hammom bor. Xuddi shu tomonda yana ikkita yotoqxona bor. O'ng tomonimda ham xuddi shunday tartib, ammo bu tomondagi hammom balkon yonida.
+
+Shunday derkan, Skarter hammom eshigini ochib, yon tomonga turdi — Klein, Benson va Melissaning ichkariga qarashiga to'sqinlik qilmaslik uchun.
+
+Hammomda qo'shimcha bir vanna bor edi. Boshqa hammomdek, hojatxona yonida garmoshkasimon eshik bor edi. Garchi biroz changlagan bo'lsa-da, u kir, badbo'y yoki tor emasdi.
+
+Melissa garangsib qarab turdi, toki Skarter yonidagi yotoqxonaga yurguncha. Faqat shundagina u qarashdan to'xtab, qolganlar ortidan sekin ergashdi. Yana bir necha qadam tashlab, ortiga qaradi.
+
+Hayotda tajribali Klein ham quvonchli va hayajonli edi. Garchi uy egasi tez-tez ularning hammom tozalashini nazorat qilsa-da, u baribir yetarlicha toza bo'lmasdi. Ko'pincha jirkanch edi, hojat chiqqanda navbatga osongina duch kelishlarini-ku aytmasa ham bo'lardi.
+
+Boshqa hammom ham shunga o'xshash edi. To'rt yotoqxonadan biri biroz kattaroq bo'lib, kitob javoni bilan jihozlangandi. Qolganlari bir-biriga deyarli teng kattalikda bo'lib, karavot, stol va shifoner bilan jihozlangandi.
+
+— Balkon juda mitti, shu bois bir vaqtning o'zida ko'p kiyim quyoshda quritolmaysiz. — Skarter koridor oxirida turib, eshik va qulfli bir joyga ishora qildi. — To'liq yer osti drenaji, gaz quvuri, hisoblagich va boshqa jihozlar bor. U siz kabi janoblar va xonim uchun juda mos. Haftasiga atigi o'n uch soli ijara va mebeldan foydalanish uchun besh pens talab qiladi. Bundan tashqari, to'rt haftalik ijaraga teng garov to'lovi bor.
+
+Bensonning gapirishini kutmay, Klein atrofga alanglab, qiziqsinib so'radi:
+
+— Uyni sotib olish taxminan qanchaga tushadi?
+
+Taomxo'rlar imperiyasidan kelgan o'zgaolamlik sifatida, undagi uy-joy sotib olish istagi hamon mavjud edi.
+
+Bu savolni eshitib, Benson va Melissa hayratga tushdi. Ular Kleinga go'yo maxluqni ko'rayotgandek qarashdi.
+
+Skarter xotirjam va qat'iy javob berdi:
+
+— Sotib olishmi? Yo'q, biz mol-mulk sotmaymiz. Biz faqat ijaraga beriladigan uy-joy taqdim qilamiz.
+
+— Men shunchaki narxlardan umumiy tasavvur olmoqchiman, xolos. — Klein noqulay tushuntirdi.
+
+Skarter bir necha soniya ikkilanib dedi:
+
+— O'tgan oy Nargis ko'chasi 11-uy egasi yer ustidagi shunga o'xshash mol-mulk bilan birga muddatli yer guvohnomasini sotdi. O'n besh yilga 300 funt. Bu to'g'ridan-to'g'ri ijaraga olishdan ancha arzon, ammo hamma ham bunday katta summani to'lay olmaydi. Agar uni butunlay sotib olmoqchi bo'lsangiz, egasi qo'ygan narx 850 funt.
+
+850 funtmi? Klein tez xayolan hisob-kitob qildi.
+
+Mening haftalik maoshim uch funt, Benson bir funt-u o'n soli topadi... Ijara o'n uch soli, agar har kuni yaxshi ovqatlansak, haftasiga ikki funtga yaqin sarflaymiz. Buning ustiga kiyim, transport, ijtimoiy xarajatlar va hokazo. Biz haftasiga yigirma solidan kamroq jamg'ara olamiz. Bir yil taxminan 35 funtni tashkil qiladi. 850 funt yigirma yildan ko'proq vaqt talab qiladi. Hatto yerni muddatli, 300 funtga olsak ham, kamida sakkiz-to'qqiz yil ketadi... Bu uylanish, mustaqil yashash, bola tarbiyalash, sayohat va hokazolarni hisobga olmaganda... Individual uy-joy kreditlari yo'q olamda, ko'pchilik, ehtimol, ijarani tanlaydi...
+
+Buni anglab, u orqaga tisarildi va Bensonga o'g'irincha qaradi. Skarter bilan ijara haqida gaplashishini ishora qildi. Melissaning niyatlariga kelsak, ular yorqin ko'zlaridan yaqqol ko'rinib turardi!
+
+Shu payt Klein birdan Bensonni erkin qo'yib yuborishni o'yladi.
+
+Benson oddiy hassasini taqillatib, atrofga alangladi, so'ng dedi:
+
+— Boshqa uylarni ham ko'rishimiz kerak. Ovqatlanish joyining yorug'ligi yaxshi emas, balkon ham juda kichik. Qarang, faqat o'sha yotoqxonada kamin bor, mebel ham juda eski. Ko'chib o'tsak, hech bo'lmasa shularning yarmini almashtirishimiz kerak...
+
+U shoshqaloq ohangda kamchiliklarni sanab, Skarterni ijarani o'n ikki soliga, mebeldan foydalanish haqini uch pensga tushirishga ko'ndirishga o'n daqiqa sarfladi, garovni esa ikki funtga yaxlitladi.
+
+Ko'p so'zlamay, aka-singillar Skarter bilan Tingen Shahar Uy-joy Yaxshilash Kompaniyasiga qaytib, shartnomaning ikki nusxasini imzolashdi. So'ng shartnomani tasdiqlatish uchun Tingen Shahar Notarius idorasiga borishdi. Garov va birinchi haftalik ijarani to'lagach, Klein va Bensonning qolgan puli jami to'qqiz funt-u ikki soli-yu sakkiz pens bo'ldi.
+
+Nargis ko'chasi 2-uy eshigi oldida turib, ularning har biri bir dasta mis kalit ushlab turardi. Ular bir lahza ko'zlarini uzolmadi; ko'ngillarida hissiyot qaynardi.
+
+— Tushga o'xshaydi... — Bir ozdan keyin Melissa boshini ko'tarib, kelgusi "Moretti uyi"ga qaradi va past, ammo titroq ovozda gapirdi.
+
+Benson nafas chiqarib jilmaydi.
+
+— Unda uyg'onma.
+
+Klein ular kabi hissiyotli emasdi. U bosh irg'ab dedi:
+
+— Asosiy eshik va balkon eshigining qulflarini imkon qadar tezroq almashtirishimiz kerak.
+
+— Shoshilma. Tingen Shahar Uy-joy Yaxshilash Kompaniyasining obro'si juda yaxshi. Qolgan pul sening rasmiy kostyuming uchun. Biroq undan oldin biz janob Frankini yo'qlashimiz kerak. — Benson kvartira tomon ishora qildi.
+
+...
+
+Aka-singillar uyda javdar non bilan kifoyalanib, so'ng Temir Xoch ko'chasidagi qator kvartiraga yo'l olishdi. Uy egasining eshigini taqillatishganda, janob Franki pakana gavdasini divanga qo'ygancha, salobat bilan e'lon qildi:
+
+— Qoidalarimni bilasiz. Hech kimga ijara haqidan qarz bo'lib qolishga ruxsat yo'q!
+
+Benson oldinga engashib jilmaydi.
+
+— Janob Franki, biz ijaramizdan voz kechgani keldik.
+
+Shunchaki to'g'ridan-to'g'rimi? Bunday muzokara ish berarmidi? Bensonning yonida turgan Klein buni eshitib hayratga tushdi. Bu yerga kelishda Benson o'zining eng so'nggi chegarasi o'n ikki soli tovon ekanini aytgandi.
+
+— Ijarangizdan voz kechasizmi? Yo'q! Bizda shartnoma bor, hali yarim yil qoldi! — Franki Bensonga o'qrayib, qo'llarini siltadi.
+
+Benson unga jiddiy qarab, bir lahza kutgach, xotirjam dedi:
+
+— Janob Franki, tushunishingiz kerak, siz ancha ko'proq pul topishingiz mumkin edi.
+
+— Ancha ko'proqmi? — qiziqsinib so'radi Franki, ozg'in yuzini ushlab.
+
+Benson tik o'tirib, jilmayib tushuntirdi:
+
+— Ikki xonali uy uchovimizga besh soli-yu olti pensga ijaraga berilgandi. Ammo uni besh yoki olti kishilik oilaga ijaraga bersangiz, ulardan ikki-uchtasi ishlab maosh oladigan bo'lsa, jinoyatga to'la Quyi ko'chada qolish o'rniga shu yerda yashash uchun ko'proq to'lashga rozi bo'lardi deb o'ylayman. Menimcha, besh soli-yu o'n pens yoki olti soli o'rinli narx bo'lardi.
+
+Frankining ko'zlari yondi, bo'g'zi qimirladi, Benson davom etdi:
+
+— Qolaversa, so'nggi yillarda ijara narxlari oshib borayotganini, albatta, bilasiz. Biz qancha ko'p qolsak, sizning zararingiz shuncha katta bo'ladi.
+
+— Lekin... menga yangi ijarachi qidirishga vaqt kerak. — Kvartira binosini meros qilib olgan janob Frankiga bu g'oya ochiq-oydin yoqdi.
+
+— Ishonamanki, qobiliyatingiz va imkoniyatingiz bor ekan, juda tez topasiz. Balki ikki kunda, balki uch kunda... Shu vaqt davomidagi zararingizni biz qoplaymiz. Biz to'lagan uch soli garov-chi? U juda o'rinli! — Benson darrov Franki o'rniga qaror qildi.
+
+Franki mamnun bosh irg'adi.
+
+— Benson, sen shunaqa vijdonli va halol yigit ekansan. Mayli unda, shartnomani bekor qilishni imzolaylik.
+
+Klein buning yuz berishini ko'rib dovdirab qoldi. U janob Frankini "ko'ndirish" qanchalik oson ekanini to'la angladi. Bu juda oson-ku...
+
+Avvalgi shartnoma muammosi hal bo'lgach, uch aka-singil avval Kleinga rasmiy kiyim olishga yordam berishdi, so'ng uy ko'chirish bilan band bo'lishdi.
+
+Ularda og'ir yoki katta narsa yo'q edi, chunki bahaybat buyumlar uy egasiniki edi. Shu bois Benson va Melissa Kleinning arava yollash g'oyasini rad etib, narsalarini o'zlari ko'tarishdi. Ular Nargis ko'chasi bilan Temir Xoch ko'chasi o'rtasida bir necha bor borib-kelishdi.
+
+Deraza tashqarisidagi issiq quyosh g'arbga botdi, tilla nurlar chiqma deraza orqali tushib, stol yuzasiga sochildi. Klein kitob va daftarlar saranjom terilgan javonga qaradi, so'ng avval artib tozalagan stolga bir shisha siyoh va perli ruchka qo'ydi.
+
+Nihoyat tugadi... U yengil tin oldi va oshqozoni g'uvillaganini eshitdi. Shimargan yenglarini bo'shatib, eshik tomon yurdi. Endi unda o'ziga tegishli karavot bor edi. Choyshab va adyol oq, eski, ammo toza edi.
+
+Klein eshik tutqichini burib, yotoqxonasidan chiqdi. Endigina biror narsa demoqchi bo'lganda, ro'paradagi ikkala eshik bir vaqtning o'zida ochilib, Benson va Melissa ko'rindi. Ularning yuzidagi chang va kir izlarini ko'rib, Klein va Benson birdan qah-qah otib kulib yuborishdi, g'ayritabiiy darajada xushchaqchaq ovoz chiqdi. Melissa lablarini yengilgina tishladi, ammo kulgi yuqumli edi. U oxiri yumshoqqina kulib yubordi.
+
+...
+
+Ertasi kuni ertalab.
+
+Klein hech qanday yorig'i yo'q to'liq bo'yli ko'zgu oldida turib, ko'ylagining yoqasi va yenglarini jiddiy tekisladi. Kiyim oq ko'ylak, qora frak, ipak silindr shlyapa, qora jiletka, bir komplekt shim, etik va galstuk-kapalakdan iborat edi. Jami sakkiz funt to'laganini eslab, achindi.
+
+Biroq natija ajoyib edi. Klein ko'zgudagi aksi ko'proq ilmiy tarovat namoyon qilib, uni kelishganroq ko'rsatayotganini his qildi.
+
+Tiq! U cho'ntak soatini yopib, ichki cho'ntagiga soldi. So'ng hassasini olib, revolverini yashirdi. Relsli jamoat aravasiga o'tirib, Zouteland ko'chasiga keldi.
+
+Blackthorn Qo'riqlash Kompaniyasiga kirgan zahoti, u avvalgi turmush tarziga shu qadar o'rganib qolganki, Melissaga qo'shimcha pul berishni unutib, uni piyoda maktabga yuborganini angladi. Bosh chayqab, buni yodda tutdi, so'ng Blackthorn Qo'riqlash Kompaniyasiga qadam qo'ydi.
+
+U jigarrang sochli qiz Rozannaning qahva tayyorlayotganini ko'rdi. Boy bir hid butun kabinetga taraldi.
+
+— Xayrli tong, Klein. Bugun ob-havo zo'r, — salom berdi Rozanna jilmayib. — Rostini aytsam, men doimo qiziqaman. Bunday ob-havoda, sizlar — erkaklar bunday rasmiy kostyumlarda issiqlab ketmaysizlarmi? Bilaman, Tingenning yozi Janubnikidek issiq emas, lekin baribir yoz-ku.
+
+— Bu — did bahosi, — javob berdi Klein hazil bilan. — Xayrli tong, Rozanna xonim. Kapitan qani?
+
+— O'sha eski joyda. — Rozanna ichkariga ishora qildi.
+
+Klein bosh irg'adi. U to'siqdan o'tib, Dunn Smitning kabinet eshigini taqillatdi.
+
+— Kiring. — Dunnning ovozi odatdagidek teran va mayin edi. U chiroyli rasmiy kiyimda ancha boshqacha ko'ringan Kleinni ko'rgach, bosh irg'adi, kulrang ko'zlari jilmaydi.
+
+— Qaror qildingmi? — so'radi u.
+
+Klein chuqur nafas olib, jiddiy javob berdi:
+
+— Ha, qaror qildim.
+
+Dunn sekin tik o'tirdi. Ifodasi tantanavor tus oldi, ammo kulrang ko'zlarining teran qa'ri o'zgarmadi.
+
+— Javobingni ayt.
+
+Klein hech ikkilanmay javob berdi:
+
+— Ko'ruvchi!
