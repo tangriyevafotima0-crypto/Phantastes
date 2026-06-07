@@ -13,24 +13,32 @@ M = {
 'К':'K','Л':'L','М':'M','Н':'N','О':'O','П':'P','Р':'R','С':'S','Т':'T',
 'У':'U','Ф':'F','Х':'X','Ч':'Ch','Ш':'Sh','Э':'E','Ю':'Yu','Я':'Ya',
 'Й':'Y','Ц':'S',
+'і':'i','ї':'i','є':'e','ґ':"g'",'ѕ':'s','џ':'j','ј':'y','њ':'n','љ':'l',
+'І':'I','Ї':'I','Є':'E','Ґ':"G'",
+# Arabcha gliflar (vizual almashinish natijasida kirib qoladi)
+'ا':'a','ب':'b','ت':'t','ث':'s','ج':'j','ح':'h','خ':'x','د':'d','ذ':'z',
+'ر':'r','ز':'z','س':'s','ش':'sh','ص':'s','ض':'z','ط':'t','ظ':'z','ع':"'",
+'غ':"g'",'ف':'f','ق':'q','ك':'k','ل':'l','م':'m','ن':'n','ه':'h','و':'o',
+'ي':'i','ى':'i','ة':'a','ء':"'",'پ':'p','چ':'ch','ژ':'j','گ':'g','ک':'k','ی':'i',
 }
 
 files = sys.argv[1:] or sorted(glob.glob('Phantastes/translation/ch*.md'))
 total = 0
+def is_nonlatin(c):
+    return ('\u0400' <= c <= '\u04FF') or ('\u0600' <= c <= '\u06FF') or ('\u0590' <= c <= '\u05FF')
 for fn in files:
     txt = open(fn, encoding='utf-8').read()
-    n = sum(1 for c in txt if '\u0400' <= c <= '\u04FF')
+    n = sum(1 for c in txt if is_nonlatin(c))
     if n:
         fixed = ''.join(M.get(c, c) for c in txt)
         open(fn, 'w', encoding='utf-8').write(fixed)
-        rem = sum(1 for c in fixed if '\u0400' <= c <= '\u04FF')
-        print(f'{fn}: fixed {n} cyrillic chars, remaining {rem}')
+        rem = sum(1 for c in fixed if is_nonlatin(c))
+        print(f'{fn}: fixed {n} non-latin chars, remaining {rem}')
         total += n
-    # Arabic / other non-Latin detection (no auto-fix, just warn)
-    txt2 = open(fn, encoding='utf-8').read()
-    for i, c in enumerate(txt2):
-        if '\u0600' <= c <= '\u06FF' or '\u0590' <= c <= '\u05FF':
-            ctx = txt2[max(0, i-15):i+10]
-            print(f'  !! {fn}: non-latin char {c!r} (U+{ord(c):04X}) near: {ctx!r}')
+        if rem:
+            t2 = open(fn, encoding='utf-8').read()
+            for i, c in enumerate(t2):
+                if is_nonlatin(c):
+                    print(f'  !! leftover {c!r} (U+{ord(c):04X}) near: {t2[max(0,i-15):i+10]!r}')
 if total == 0:
-    print('Toza: kirill harflari topilmadi.')
+    print('Toza: begona harflar topilmadi.')
